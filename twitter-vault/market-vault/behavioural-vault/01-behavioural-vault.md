@@ -1,9 +1,8 @@
 # **Behavioural Vault**
 
 
-## **1. Wrong Lessons of Cycle**
-**[Sahil Kapoor](https://x.com/arindam___paul/status/1924869038167228797)** | **[Original Tweet](https://x.com/SahilKapoor/status/1910546333775401156)**
-
+## [Sahil Kapoor](https://x.com/SahilKapoor)
+[Wrong Lessons of Cycle]((https://x.com/SahilKapoor/status/1910546333775401156))
 
 ```
 The Wrong Lessons of This Cycle That Investors Should 'Un-learn'

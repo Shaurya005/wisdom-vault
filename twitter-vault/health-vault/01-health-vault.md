@@ -27,13 +27,34 @@ loosely translated
 
 “If son/daughter is competent then why save money (can earn themselves), if they are incompetent then why save money (will waste)”.
 
+## [TheLiverDoc](https://x.com/theliverdr)
 
-## **1. Only Supplement**
-**[TheLiverDoc](https://x.com/theliverdr)** | **[Original Tweet](https://x.com/theliverdr/status/1934227797599555620)**
-
+[Only Supplement](https://x.com/theliverdr/status/1934227797599555620)
 
 I think these are the ONLY nutritional supplements worth your time and money (in their recommended situations):
 
 - Whey protein isolate
 - Creatine monohydrate
 - Black coffee
+
+
+Career advice
+
+
+[Medical Degrees](https://x.com/theliverdr/status/1946056859875692891)
+
+🩺Medical degrees -
+MBBS
+MD, MS, DNB
+DM, Mch, DrNB
+BDS, MDS
+
+💰Business degrees -
+BAMS (Ayurveda)
+BHMS (Homeopathy)
+BYNS (Yoga and Naturopathy)
+BUMS (Unani)
+BSMS (Siddha)
+Acupuncture
+Chiropractor
+Functional Medicine
