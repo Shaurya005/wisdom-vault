@@ -22,7 +22,7 @@ I stopped sitting in stocks that broke out and spend days and weeks there, it sh
 
 Few understand this magic formula but those who do will do really well in Trading.
 
-![](/Users/shaurya.jaiswal/Downloads/Gu_8S2yWQAAlVsk.png)
+<img width="1512" height="198" alt="Gu_8S2yWQAAlVsk" src="https://github.com/user-attachments/assets/668f085e-a075-4716-b8a4-564525ed3c86" />
 
 [IPO Flags](https://x.com/VVVStockAnalyst/status/1940813584407449767)
 
@@ -44,7 +44,8 @@ Avoid - Large Losses.
 
 That's how you maintain flag ranges after the push ups.
 
-![](/Users/shaurya.jaiswal/Downloads/Gu0xP8BXQAADI3L.jpeg)
+![Gu0xP8BXQAADI3L](https://github.com/user-attachments/assets/d9233a3d-bf23-450b-b32b-5f2be38f417f)
+
 
 [Making Money in Market](https://x.com/VVVStockAnalyst/status/1939542785293492674)
 
@@ -252,7 +253,7 @@ My first salary was 4500 per month in toyota service centre.
 
 And now in 1.5 Years i made this 👇🥺
 
-![](/Users/shaurya.jaiswal/Downloads/Gu3Lq7tWQAAK5fY.jpeg)
+![Gu3Lq7tWQAAK5fY](https://github.com/user-attachments/assets/0682a8c3-5bca-4719-9d73-1e9cac3b04d3)
 
 
 In this journey i made many mistakes , my capital in start of 2022 is 7-8 lakhs only then i add some capital also , i learn many thinks in this 2-3 years from my frnds
@@ -280,14 +281,15 @@ Mathematicians and Einstein: “god does not play dice”, there are causes with
 
 Godel: but God doesn’t share  its secrets, and may well keep them hidden forever!
 
-![](/Users/shaurya.jaiswal/Downloads/Gu1utByWEAA3jjS.jpeg) ![](/Users/shaurya.jaiswal/Downloads/Gu1utBzWMAAIccE.jpeg)
+![Gu1utByWEAA3jjS](https://github.com/user-attachments/assets/26ee90ef-b92b-447e-998d-e91adbb18e4b)
+
 
 ## [Advait Arora](https://x.com/WealthEnrich)
 [Multibagger Stocks](https://x.com/WealthEnrich/status/1940237877574861012)
 
 What's your 2x or 3x stock that you are still holding ?
 
-![](/Users/shaurya.jaiswal/Downloads/Gu0cEUhXMAAgZBX.jpeg)
+![Gu0cEUhXMAAgZBX](https://github.com/user-attachments/assets/84fd9c1a-13fd-41b3-aead-c15c51a3c608)
 
 ## [Nick Schmidt](https://x.com/NickSchmidt_)
 [Watching Market](https://x.com/NickSchmidt_/status/1940035754505224200)

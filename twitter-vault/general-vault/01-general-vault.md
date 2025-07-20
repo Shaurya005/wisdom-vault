@@ -21,7 +21,8 @@ Happiness is highly linked to how focused you are on what you're doing.
 
 A wandering mind is an unhappy mind.
 
-![](/Users/shaurya.jaiswal/Downloads/Gu-lrV-XoAAAXGP.jpeg)
+![Gu-lrV-XoAAAXGP](https://github.com/user-attachments/assets/dcdb0465-c836-4bba-8af6-6c746d11dfc2)
+
 
 ## [Dan Koe](https://x.com/thedankoe)
 [What you want](https://x.com/thedankoe/status/1940098937521922213)
