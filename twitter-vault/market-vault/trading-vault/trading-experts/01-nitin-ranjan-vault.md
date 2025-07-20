@@ -42,7 +42,6 @@ Worse the market → greater the effort → lower the timeframe
 
 ![Gv6b0aSWsAAHtKe](https://github.com/user-attachments/assets/438d901a-6af7-4f7a-b97c-a694515a1a0c)
 
-
 02: Intraday Index Trading
 
 Let's now compare swing to intraday index trading. Here, the trade is taken in the same 1 or 2 indices day after day, which can be either long or short, but not carried over to the next day.
@@ -71,7 +70,7 @@ B. You know how to trade the indices
 
 Overall, probably not as hugely rewarding as swing trading in bull markets, where 2x or 3x returns on the portfolio are doable, but with great potential to outperform swing trading returns during bear/choppy markets.
 
-![](/Users/shaurya.jaiswal/Downloads/Gv6b1dzWYAAfDh1.jpeg)
+![Gv6b1dzWYAAfDh1](https://github.com/user-attachments/assets/d29ff794-dc24-43b0-8e5a-53429b361675)
 
 
 03: Intraday stock trading
@@ -94,7 +93,8 @@ We define a 'bull' market as when the percentage of stocks above the 200-day SMA
 Seh lenge thoda. Might take a very high conviction trade on and off.
 
 
-![](/Users/shaurya.jaiswal/Downloads/Gv6b3_bWYAADRMk.jpeg)
+![Gv6b3_bWYAADRMk](https://github.com/user-attachments/assets/c579b138-8c77-4feb-b095-85d783d72123)
+
 
 Disclaimer:
 ⦿ I'm a very flexible person & my views can change at any moment. So, please don't question me if you see me posting a cash trade in the near future. 😄
