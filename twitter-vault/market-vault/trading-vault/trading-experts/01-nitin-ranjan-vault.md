@@ -40,7 +40,8 @@ The ‘solution’ then becomes evident, & it is moving to a lower timeframe to 
 So, basically it is:
 Worse the market → greater the effort → lower the timeframe
 
-![](https://github.com/Shaurya005/wisdom-vault/blob/3b673729eeed890ad866fbb53b15547e078fe1ac/files/Gv6b0aSWsAAHtKe.jpeg)
+![Gv6b0aSWsAAHtKe](https://github.com/user-attachments/assets/438d901a-6af7-4f7a-b97c-a694515a1a0c)
+
 
 02: Intraday Index Trading
 
