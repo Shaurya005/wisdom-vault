@@ -1,0 +1,78 @@
+# **Rohit Vault**
+
+## [Rohit RK aka Volatility Volume and Value](https://x.com/VVVStockAnalyst)
+
+[Earning Charts](https://x.com/VVVStockAnalyst/status/1933178361918222553)
+
+Start doing High RS Screening, stocks that resist this fall. They are your next winners
+
+#VVVTip
+
+[Highly Liquid](https://x.com/VVVStockAnalyst/status/1931288884794753533)
+
+Choosing just highly liquid leading stocks with very clean and linear moves, good attitude after each past breakout and belonging to the leading sector is the easiest way to become rich in swing trading in Indian Markets.
+
+[Dan Zanger Quote](https://x.com/VVVStockAnalyst/status/1941047374173909299)
+
+This single Quote from Dan Zanger Changed my life.
+
+Dan Zanger turned 10k dollars to 18M in the fastest time.
+
+I stopped sitting in stocks that broke out and spend days and weeks there, it should move the moment it breaks out.
+
+Few understand this magic formula but those who do will do really well in Trading.
+
+<img width="1512" height="198" alt="Gu_8S2yWQAAlVsk" src="https://github.com/user-attachments/assets/668f085e-a075-4716-b8a4-564525ed3c86" />
+
+[IPO Flags](https://x.com/VVVStockAnalyst/status/1940813584407449767)
+
+I generally like IPO Flags. IPO bases are good but IPO Flags give powerful moves if they work.
+
+Just see BAJAJ INDEF - What a clean move - It had a mix of Institutional Buying + Young IPO Base.
+
+SCODA TUBES - Powerful Young IPO Flag structure
+
+[Maintain Equity Curve](https://x.com/VVVStockAnalyst/status/1940261276598641094)
+
+To maintain an equity curve for your PF like a Stage 2 stock always you need 3 things.
+
+Large Profits
+Small Profits ( To cut with small losses)
+Small Losses
+
+Avoid - Large Losses.
+
+That's how you maintain flag ranges after the push ups.
+
+![Gu0xP8BXQAADI3L](https://github.com/user-attachments/assets/d9233a3d-bf23-450b-b32b-5f2be38f417f)
+
+
+[Making Money in Market](https://x.com/VVVStockAnalyst/status/1939542785293492674)
+
+3 Things can make you money in the market.
+
+Institutional Buying.
+IPO Bases.
+Sectoral Bets.
+
+
+https://x.com/VVVStockAnalyst/status/1949704716134351330
+
+Announcement 📣
+
+Rather than burning your hands in such poor market conditions.
+
+Spend your time learning in and out about Institutional buying with more than 10 examples to help you visualise them.
+
+From 3:13:03 in TL Conference
+
+Link: https://www.youtube.com/live/MKUjsaGE8wk
+
+
+[Raging Bull Market](https://x.com/VVVStockAnalyst/status/1948645193609031865)
+
+Trailing with moving averages alone works only for the Raging Bull Markets.
+
+Indian markets have fooled or disguised traders in the last 4 years by acting textbook style with moves being longer and smoother making a false assumption in trader's minds that markets will remain like this forever.
+
+The post Covid Era is just a period in Indian history of sporadic growth and excess liquidity flowing making things work really well. But to survive in this market being a trader for a very long time without getting emotionally tired one should definitely learn what works through periods of decades. We have done that research and knowing to adapt your selling is the most important thing that will help you survive in this markets for the longest period with the most clean equity curve.

@@ -1,8 +1,8 @@
 # **Health Vault**
 
 
-## **1. Electrolyte Water**
-**[Priya Nagwani](https://x.com/priya_nagwani)** | **[Original Tweet](https://x.com/priya_nagwani/status/1912546921362636909)**
+## [Priya Nagwani](https://x.com/priya_nagwani)
+[Electrolyte Water](https://x.com/priya_nagwani/status/1912546921362636909)
 
 Not everyone needs to add salt to their water.
 
@@ -58,3 +58,31 @@ BSMS (Siddha)
 Acupuncture
 Chiropractor
 Functional Medicine
+
+
+[Vitamin D Supplement](https://x.com/theliverdr/status/1910205458964509134)
+
+These are the groups that actually require vitamin D supplements.
+
+1. Children until the age of 18
+2. Pregnant women
+3. Adults above 75 years
+4. People with pre-diabetes
+
+For others, getting a useless tan is perfectly fine.
+No worries.
+
+## [William A. Wallace, Ph.D.](https://x.com/drwilliamwallac)
+[Physical activity](https://x.com/drwilliamwallac/status/1951984429359845434)
+
+Physical activity is the most effective intervention available for promoting brain health and longevity. Recent research demonstrates that regular exercise, even in modest amounts, is effective for enhancing brain volume, improving memory, and reducing the risk of neurodegenerative diseases. Beyond its cognitive benefits, moderate physical activity also contributes to extended lifespan and better overall health outcomes.
+
+Even regular walking has shown to have powerful impacts on brain structure and function:
+
+*️⃣Activity levels equivalent to 4,000 steps per day have been linked to measurable increases in gray matter and white matter volumes (PMID: 38073389)
+
+*️⃣A 2011 study showed that 40 minutes of walking, three times per week lead to a 2% increase in hippocampal volume over one year, effectively reversing 1–2 years of age-related atrophy and enhancing spatial memory performance (PMID: 21282661).
+
+*️⃣A more recent study suggests that activity levels equivalent to walking just under 3 hours daily for the least active populations could extend lifespan by 11 years on average (doi: 10.1136/bjsports-2024-108125).
+
+Even walking is an accessible, non-pharmacological intervention for promoting brain health, reducing disease risk, and enhancing longevity.

@@ -164,3 +164,74 @@ If you spotted suprise in the previous quarter - then look for the earnings acce
 [Clean Charts](https://x.com/_chartitude/status/1940028757143593231)
 
 Analyse clean charts if you are a beginner. Don't intend to draw anything. Price structure or you can say that the law of supply & demand is supreme.
+
+[Dan Zanger's Letters](https://x.com/_chartitude/status/1948034881633812704)
+
+Dan Zanger’s letters will be the goldmine for the upcoming generations forever.
+
+85,000+ pages & still counting
+
+No jargons
+Simple lines drawn on the stocks with good earnings or relative strength
+
+Pure wisdom
+
+
+
+[RS Scan](https://x.com/_chartitude/status/1843890757767422024)
+
+Firstly, I am talking about RS and not RSI.
+
+Secondly, any stock that will move 5-6X will display outperformance compared to the benchmark. This is basic mathematics and will stay forever.
+
+So any stock that has to move 500% will first move 30% and pass the RS scan
+
+
+[Prepare Chart Database](https://x.com/thechartist26/status/1951483446590840972)
+
+Three ways to prepare your chart database
+
+1. Past winners yearwise (List on @Charts_Maze)
+2. Trades of @markminervini @DanZanger , model books by @TraderLion_ and many others
+3. Your own trading journal and printout of your own trades
+
+
+[List of Books](https://x.com/thechartist26/status/1951154138768875669)
+
+Original account @_chartitude is hacked.
+
+I am writing again the list of books that one should read as a beginner in trading/investing.
+@InvestmentBook1 might share the link with you for them.
+
+1. How I made 2,000,000$ in the Market by Nicolas Darvas - any cover you find on Amazon is ok. This book covers the basics, so you'll need to read it multiple times.
+
+2. You can still make it in the market by Nicolas Darvas - here, he will explain in detail his concepts.
+
+3. How to Make Money in Stocks - William O Neil
+
+4. Trade Like a Stock Market Wizard by Mark Minervini
+
+5. Thing and Trade Like a Champion by Mark Minervini
+
+6. Secrets for Profiting in Bull & Bear Markets by Stan Weinstein
+
+7. Two books on Jessie Livermore
+
+Reminiscences of a Stock Operator
+How to Trade in Stocks
+
+
+In 2022
+
+I wrote a blog on Substack mentioning all the books
+
+https://open.substack.com/pub/thechartist/p/books-recommendations?r=tv3fh&utm_medium=ios
+
+
+[Past trades of Mark Minervini](https://x.com/thechartist26/status/1950814421032575015)
+
+Past trades of Mark Minervini (not compiled by me)
+
+https://puzzled-savory-63c.notion.site/24fb0b88f4fc42248d726505dad2b596?v=a426b5c5100149a88150fc6fe13649c1
+
+Bookmark and RT for others

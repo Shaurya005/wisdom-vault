@@ -101,3 +101,50 @@ Disclaimer:
 
 ⦿ Please don't post the "bhaisahab-ye-kis-line-mein-aa-gaye-aap" & "jis-raah-par-tum-chal-rahe-ho-munna" memes. 😜
 Counter with logic & not emotions. I'm always ready to change my mind if provided with sufficient evidence.
+
+[Ankur Patel Trading Youtube Presentation](https://x.com/finallynitin/status/1802510257136230883)
+
+Here is the presentation for the Simplifying Trading YouTube session with
+@AnkurPatel59
+
+
+https://simplifyingtrading.my.canva.site
+
+
+https://x.com/finallynitin/status/1802511279351066980
+
+Links to all my scripts & scans mentioned in the Simplifying Trading YouTube session with
+@AnkurPatel59
+
+
+Scripts
+
+⦿ Simple Volume: https://tradingview.com/script/JkB0iCFp-Simple-Volume-with-Pocket-Pivots/
+
+⦿ MARS: https://tradingview.com/script/Lv26g1XV-MARS-Moving-Average-Relative-Strength/
+
+⦿ Quarterly Earnings: https://tradingview.com/script/oBswL9v2-Quarterly-Earnings/
+
+⦿ Net New Highs: https://tradingview.com/script/50J8wzdW-Indian-Markets-Net-New-Highs/
+
+⦿ Market Breadth: https://tradingview.com/script/b1gXIrNm-Market-Breadth-of-NSE-stocks-based-on-above-Moving-Averages/
+
+Scans
+
+⦿ Liquidity: https://chartink.com/screener/universe-atfinallynitin
+
+⦿ HVQ/HVY: https://chartink.com/screener/hvq-hvy-hve-atfinallynitin
+
+⦿ Bull Snort: https://chartink.com/screener/bull-snort-volume-atfinallynitin
+
+⦿ IPO scan: https://chartink.com/screener/ipo-365-atfinallynitin
+
+⦿ Pocket Pivot: https://chartink.com/screener/ppv-atfinallynitin
+
+⦿ Flags: https://chartink.com/screener/flags-atfinallynitin
+
+⦿ Stage 2 stocks: https://chartink.com/screener/stage-2-stocks-atfinallynitin
+
+TradingView profile
+
+https://tradingview.com/u/finallynitin/

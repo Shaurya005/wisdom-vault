@@ -1,59 +1,5 @@
 # **Trading Vault**
 
-## [Rohit aka Volatility Volume and Value](https://x.com/_chartitude)
-
-[Earning Charts](https://x.com/VVVStockAnalyst/status/1933178361918222553)
-
-Start doing High RS Screening, stocks that resist this fall. They are your next winners
-
-#VVVTip
-
-[Highly Liquid](https://x.com/VVVStockAnalyst/status/1931288884794753533)
-
-Choosing just highly liquid leading stocks with very clean and linear moves, good attitude after each past breakout and belonging to the leading sector is the easiest way to become rich in swing trading in Indian Markets.
-
-[Dan Zanger Quote](https://x.com/VVVStockAnalyst/status/1941047374173909299)
-
-This single Quote from Dan Zanger Changed my life.
-
-Dan Zanger turned 10k dollars to 18M in the fastest time.
-
-I stopped sitting in stocks that broke out and spend days and weeks there, it should move the moment it breaks out.
-
-Few understand this magic formula but those who do will do really well in Trading.
-
-<img width="1512" height="198" alt="Gu_8S2yWQAAlVsk" src="https://github.com/user-attachments/assets/668f085e-a075-4716-b8a4-564525ed3c86" />
-
-[IPO Flags](https://x.com/VVVStockAnalyst/status/1940813584407449767)
-
-I generally like IPO Flags. IPO bases are good but IPO Flags give powerful moves if they work.
-
-Just see BAJAJ INDEF - What a clean move - It had a mix of Institutional Buying + Young IPO Base.
-
-SCODA TUBES - Powerful Young IPO Flag structure
-
-[Maintain Equity Curve](https://x.com/VVVStockAnalyst/status/1940261276598641094)
-
-To maintain an equity curve for your PF like a Stage 2 stock always you need 3 things.
-
-Large Profits
-Small Profits ( To cut with small losses)
-Small Losses
-
-Avoid - Large Losses.
-
-That's how you maintain flag ranges after the push ups.
-
-![Gu0xP8BXQAADI3L](https://github.com/user-attachments/assets/d9233a3d-bf23-450b-b32b-5f2be38f417f)
-
-
-[Making Money in Market](https://x.com/VVVStockAnalyst/status/1939542785293492674)
-
-3 Things can make you money in the market.
-
-Institutional Buying.
-IPO Bases.
-Sectoral Bets.
 
 
 ## [Shubham Gupta aka Investorniti](https://x.com/investorniti)
@@ -119,6 +65,14 @@ Stage analysis + EPS & RS rating
 
 That’s it..
 
+[Screener Screens](https://x.com/ishmohit1/status/1857437243373228465)
+
+Made all these screens at @screener_in
+which includes multiple fundamental aspects to filter stocks.
+
+Free to use
+
+https://screener.in/user/145178/
 
 
 ## [The Chartians](https://x.com/chartians)
@@ -161,34 +115,6 @@ How do I cut the noise from many setups to 2-3 tradable ideas?
 ⏩Trade stocks with solid volume action.
 
 & Manage your risk well.
-
-## [Day End Trader](https://x.com/dayendtrader)
-[Price have all the answers](https://x.com/dayendtrader/status/1946045641970368542)
-
-What to buy?
-Whatever price tells you to buy.
-
-When to buy?
-Whenever price tells you to buy.
-
-How much to buy?
-As much as risk allows you to buy.
-
-When to sell?
-When price tells you to sell.
-
-Price doesn’t simply have all the answers, she is the answer. 🙏
-
-[Powerful IPO Scan](https://x.com/dayendtrader/status/1942725642186805405)
-
-A simple yet powerful IPO screen:
-1. MCap > 500cr
-2. IPO within one year
-3. Volume > 5cr
-4. % from 52 Week High < 20%
-
-Only 30 names. Have fun!🙏
-
 
 ## [Anand Shah](https://x.com/Anand_shah07)
 [Play the Market Like Yourself](https://x.com/Anand_shah07/status/1945503416098173238)
@@ -295,3 +221,93 @@ What's your 2x or 3x stock that you are still holding ?
 [Watching Market](https://x.com/NickSchmidt_/status/1940035754505224200)
 
 I used to think watching the market all day  gave me more control but now I know it just gives me more time to lie to myself. give me six hours staring at the screen and I’ll turn any chart into a reason to buy or sell.
+
+
+## [Manas Arora](https://x.com/iManasArora)
+[Cutting Losses](https://x.com/iManasArora/status/1909201242011639830)
+
+If you’re a swing trader, you can’t afford to take large losses. You’re aiming for 20–40% moves, so there’s no way you can hold onto a stock that’s down 20% from your entry price. If this sounds like you, the first change you need to make is to start cutting your losses at 2–4%.
+
+[Win Rate](https://x.com/iManasArora/status/1948655787179380970)
+
+“My win rate is 30 percent, and I make money year on year not trade by trade, week by week, or month by month.”
+
+This is how I think and this mindset shift removes the constant pressure we place on ourselves after every trade. And of course, only those who are not fully dependent on trading income can truly afford to think this way.
+#BroTip
+
+[LIQUIDITY FORCE indicator](https://x.com/iManasArora/status/1947887759852769599)
+
+This is my new LIQUIDITY FORCE indicator. Combine it with BUYING FORCE and you can catch crazy moves in strong markets.
+
+Used my own interpretation of it and caught #MCLOUD, #RHIM, #DATAMATICS to name a few
+
+Thanks
+@finallynitin
+
+## [Ameet Rai](https://x.com/AmeetRai_)
+[Mark Minervini’s Buy Rules](https://x.com/AmeetRai_/status/1864280933718696323)
+
+Mark Minervini’s Buy Rules
+
+1. Stock price above 150-day and 200-day moving averages.
+2. 150-day moving average above the 200-day moving average.
+3. 200-day moving average trending upward for at least 1 month, preferably 4-5 months.
+4. Stock price trading above the 50-day moving average.
+5. Current price at least 25% above the 52-week low.
+   6.Current price within 25% of the 52-week high.
+   7.Relative Strength (RS) ranking no less than 70, preferably in the 90s.
+   http://8.RS line in an uptrend for at least 6 weeks, preferably 13 weeks.
+   9.Breakouts occur from well-formed base structures (cup, cup-with-handle, flat base).
+   10.Breakout occurs with volume at least 50%-100% higher than average.
+   11.Wide price spread and strong close on breakout day.
+   12.Accelerating earnings growth, preferably 50%-100% or more.
+   13.Consistent revenue growth of 20%-50%.
+   14.Increasing institutional sponsorship.
+   15.Presence of a clear growth catalyst.
+   16.Low float (under 30 million shares).
+   17.Volume heavier on up days and lighter on pullbacks.
+   http://18.No falling earnings or deteriorating fundamentals.
+   19.Cheat entry points allowed near base completion.
+   20.Favorable reward-to-risk ratio (e.g., 3:1 or better).
+   21.Trades align with broader market uptrends.
+
+
+[BrkoutGeek](https://x.com/BrkoutGeek)
+[How to Become Best in Trading](https://x.com/BrkoutGeek/status/1952646436618645764)
+
+How to Become Best in Trading :
+
+1. Watch One Good Video around a length of 1.5 or 2 Hour
+   My Recommendation :
+   @TraderLion_
+   Youtube Channel
+
+2. Watch 200 Charts which are up more than 20% in a Week and up more than 50% in a month
+
+In 6 Month you will start seeing lot of changes.
+
+[Lone Stock Trader](https://x.com/LoneStockTrader)
+[Reward-to-Risk and Win Rate](https://x.com/LoneStockTrader/status/1948084243982340274)
+
+Important #trading insight:
+
+I’ve reviewed my trades countless times, experimenting with tighter and tighter stops.
+
+The win rate always drops—but the returns always go up, significantly.
+That’s because the relationship between reward-to-risk and win rate isn’t linear.
+
+What holds most people back from mind-blowing results is the lack of mental toughness to handle being wrong again and again… me included.
+
+## [Vijay Thakkar](https://x.com/VijayThk)
+[Breaking Rules in Trading](https://x.com/VijayThk/status/1947955643018801530)
+
+In Trading & Investing
+
+📉 Breaking rules & losing = Good
+📈 Breaking rules & profiting = Dangerous
+Why?
+
+Because profit after breaking rules feels rewarding.
+But it trains your mind to repeat indiscipline.
+
+In the long run, market should punish rule-breakers that’s healthy.
