@@ -290,6 +290,27 @@ Mark Minervini’s Buy Rules
    21.Trades align with broader market uptrends.
 
 
+[Position Sizing Late In Trend](https://x.com/AmeetRai_/status/1947409884569604264)
+
+Make sure your position sizing late in the trend is always smaller than what it would be early in the cycle.
+
+A lot of traders mess this up — they go big when everything’s flying, thinking they’ve got the Midas touch, only to round-trip gains or worse.
+
+Euphoria kicks in, the market feels “easy,” and they size up just as risk is actually increasing.
+
+The right approach?
+
+Size heavy early in the cycle when the risk/reward is most favorable.
+Scale back late, when the gains have already played out and the easy money’s behind.
+
+This is where traders who’ve made progress end up giving a big chunk back — not because their picks were bad, but because their sizing didn’t match the phase of the market.
+
+So as we push deeper into this markup phase, be aware of where we are in the cycle.
+
+Don’t confuse momentum for opportunity this late in the cycle.
+
+The smart money was in early.
+
 [BrkoutGeek](https://x.com/BrkoutGeek)
 [How to Become Best in Trading](https://x.com/BrkoutGeek/status/1952646436618645764)
 
@@ -351,4 +372,19 @@ If you're nothing without trading, you haven't understood trading at all:
 
 <img width="1200" height="585" alt="GxzzmozWAAArudS (1)" src="https://github.com/user-attachments/assets/9b8b45fd-8731-4bf9-9a71-da8325bf9bfd" />
 
+## [Sakatas Homma](https://x.com/SakatasHomma)
+[Sakatas Homma Articles](https://x.com/SakatasHomma/status/1947722876779483576)
 
+Long indepth article on http://sakatas.substack.com
+
+Join 7888 peak traders now,
+
+for FREE
+
+## [Richard Moglen](https://x.com/RichardMoglen)
+[2025 TraderLion Conference](https://x.com/RichardMoglen/status/1947032889599943148)
+
+I've put all the 2025 @TraderLion_
+Conference streams in 1 place for easy access.
+
+🔁 Retweet and share 🔁

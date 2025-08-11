@@ -248,3 +248,9 @@ Bookmark and RT for others
 This....
 
 <img width="897" height="660" alt="GxWUf2oXkAAjRvi" src="https://github.com/user-attachments/assets/955be0ba-ac68-47ba-ba12-7cc13ce88b50" />
+
+[About Day End Trader](https://x.com/thechartist26/status/1954714300947554724)
+
+I came across @dayendtrader in 2022 and it has been a journey full of learning with him. Tonnes of calls to discuss the system.
+
+Must see this interview. That’s years of refinement.

@@ -83,3 +83,44 @@ The post Covid Era is just a period in Indian history of sporadic growth and exc
 IPO Base
 
 ![Gx-nH6dXIAIeOUU ](https://github.com/user-attachments/assets/234fbf40-3798-4119-ac06-c52700f49aaf)
+
+
+[1.5 hours Presentation](https://x.com/VVVStockAnalyst/status/1954870642920341575)
+
+If you are serious about Trading and want to change your life, get really serious about it and treat it like a business.
+
+Here is my 1.5 hours Presentation that includes tons of learnings that can help you super perform
+
+Link : https://vvvlearn.com/blog
+
+[When to step out](https://x.com/VVVStockAnalyst/status/1947881931594473721)
+
+Watchlists are red, Indices are cracking the 20MA and the stocks are doing fake breakouts.
+
+Only experienced know to notice it and step out, the rest will keep trading such markets.
+
+Know when to step out.
+
+
+[Book Recommendation](https://x.com/VVVStockAnalyst/status/1947861730178068970)
+
+If you want to read only 2 books about the stockmarket to learn about trading.
+
+It's just these two.
+
+The 2 legendary books by
+@markminervini
+- They are the absolute beast books to start your understanding about the stock market and Swing trading.
+
+![GwdF5NJbEAAM-OQ](https://github.com/user-attachments/assets/01b62212-3572-4849-9f83-40bb702713c5)
+
+
+[Making and Keeping Money](https://x.com/VVVStockAnalyst/status/1947136953067155779)
+
+The perfect recipe to making and keeping money in the stock market.
+
+Knowing when to press the gas, and when to sit out sipping your tea is real knowledge.
+
+Knowledge = Concepts + Experience + Practice.
+
+![20250811_225900](https://github.com/user-attachments/assets/9e62137e-b9ad-43c3-a452-705890426284)
