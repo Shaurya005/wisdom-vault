@@ -38,3 +38,12 @@ Patrick Walker Tweets
 @_chartitude
 Course/Tweets
 Super Performance Stocks Richard Love
+
+
+[Earning Gamble](https://x.com/dayendtrader/status/1952939481281286456)
+
+Earnings are simply a gamble.
+Don’t give in to greed.
+
+![Gxo8G5zWMAAelqN](https://github.com/user-attachments/assets/e1d84a2d-0f7a-41cb-946d-71a962368e00)
+

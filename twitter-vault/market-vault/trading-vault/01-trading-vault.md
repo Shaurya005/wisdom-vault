@@ -93,6 +93,16 @@ Without their presence, breakouts will fail, moves will be slow, markets will be
 
 Don't lose your patience in this phase. Stay calm.
 
+[VCP Pattern](https://x.com/chartians/status/1954565096358760926)
+
+If you’re a swing trader stick to stocks that are following this pattern.
+
+These are the ones most likely to lead the rally when the trend flips.
+
+#StockMarketIndia
+
+<img width="1080" height="1350" alt="GyACJKvXQAETcLD" src="https://github.com/user-attachments/assets/27894b02-a9f8-40ef-a741-233c35a2d34d" />
+
 
 ## [Ravi Sharma](https://x.com/StocksNerd)
 [Demand/Supply zones](https://x.com/StocksNerd/status/1933029111561130200)
@@ -164,6 +174,14 @@ My indicators are simple for swing trading😍:
 [Market Doesn't Lie](https://x.com/markminervini/status/1943034662571348350)
 
 The market doesn't lie. It speaks in price action. The problem is, depending on when and where you are in the market, the lauagauge can change. Context is everything. Nothing can be trusted in a vacuum or in perpetuity. Don't be fooled. Even timeless tactics require timing.
+
+
+[Bottom Fishing](https://x.com/markminervini/status/1948574510753485145)
+
+True story...
+
+<img width="680" height="526" alt="Gwq6BDNWgAAdqz3" src="https://github.com/user-attachments/assets/652fe776-33b2-4f89-b0f4-66b09ea07b7a" />
+
 
 ## [Gaurav Vasshisht](https://x.com/gauravvasshisht)
 [Dan Zanger Quote](https://x.com/gauravvasshisht/status/1941280886076604582)
@@ -311,3 +329,26 @@ Because profit after breaking rules feels rewarding.
 But it trains your mind to repeat indiscipline.
 
 In the long run, market should punish rule-breakers that’s healthy.
+
+## [JulianKomar](https://x.com/BlogJulianKomar)
+
+[Managing Winning Trades](https://x.com/BlogJulianKomar/status/1954882750395150799)
+
+Managing Winning Trades: How to Let Profits Run Without Giving Them Back 👇
+
+![GyEjgEoWMAAhLn2](https://github.com/user-attachments/assets/7026ac3b-13e4-44ee-a6b3-6d4330d67bb8)
+
+[Institutional Buying](https://x.com/BlogJulianKomar/status/1953130212348113118)
+
+10 Clues Institutions
+Are Buying 👇
+
+![Gxrpk6wW4AA9vwA](https://github.com/user-attachments/assets/901f262a-080e-4582-b469-d02639fc9d41)
+
+[Understand Trading](https://x.com/stonks_sensei/status/1953704251831492685)
+
+If you're nothing without trading, you haven't understood trading at all:
+
+<img width="1200" height="585" alt="GxzzmozWAAArudS (1)" src="https://github.com/user-attachments/assets/9b8b45fd-8731-4bf9-9a71-da8325bf9bfd" />
+
+

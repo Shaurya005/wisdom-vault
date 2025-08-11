@@ -235,3 +235,16 @@ Past trades of Mark Minervini (not compiled by me)
 https://puzzled-savory-63c.notion.site/24fb0b88f4fc42248d726505dad2b596?v=a426b5c5100149a88150fc6fe13649c1
 
 Bookmark and RT for others
+
+[Chartitude Learning](https://x.com/thechartist26/status/1952615979516563751)
+
+65 hours+ of learning over here with more than 100s of doubts
+
+![GxkV4NOXkAEJdbk](https://github.com/user-attachments/assets/bfa2fd5f-4621-4af6-9c20-b374a16cb0e4)
+
+
+[Dan's 10 Golden Rule](https://x.com/thechartist26/status/1951629302220349683)
+
+This....
+
+<img width="897" height="660" alt="GxWUf2oXkAAjRvi" src="https://github.com/user-attachments/assets/955be0ba-ac68-47ba-ba12-7cc13ce88b50" />

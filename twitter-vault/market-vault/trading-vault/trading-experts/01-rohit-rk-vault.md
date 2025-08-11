@@ -76,3 +76,10 @@ Trailing with moving averages alone works only for the Raging Bull Markets.
 Indian markets have fooled or disguised traders in the last 4 years by acting textbook style with moves being longer and smoother making a false assumption in trader's minds that markets will remain like this forever.
 
 The post Covid Era is just a period in Indian history of sporadic growth and excess liquidity flowing making things work really well. But to survive in this market being a trader for a very long time without getting emotionally tired one should definitely learn what works through periods of decades. We have done that research and knowing to adapt your selling is the most important thing that will help you survive in this markets for the longest period with the most clean equity curve.
+
+
+[IPO Base](https://x.com/VVVStockAnalyst/status/1954464526482706667)
+
+IPO Base
+
+![Gx-nH6dXIAIeOUU ](https://github.com/user-attachments/assets/234fbf40-3798-4119-ac06-c52700f49aaf)

@@ -148,3 +148,13 @@ Scans
 TradingView profile
 
 https://tradingview.com/u/finallynitin/
+
+
+[Watchlist](https://x.com/finallynitin/status/1952906059905155485)
+
+Watchlist for 06-Aug-2025
+
+Although individual setups are available, the overall market environment is relatively poor, particularly with a red MBI and zero SwiCo. I'm still in all-cash for a month now.
+
+![GxocdkBXAAAP4AA](https://github.com/user-attachments/assets/49fc98e8-93f7-437a-8eb8-19ce4aeec37e)
+

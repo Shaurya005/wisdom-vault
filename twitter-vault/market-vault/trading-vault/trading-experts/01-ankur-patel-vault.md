@@ -26,3 +26,28 @@ Watch here: https://youtu.be/M-7P848WSLU
 
 
 
+[Trading](https://x.com/AnkurPatel59/status/1953770412695072858)
+
+![Gx0KjhfW4AA11FA (1)](https://github.com/user-attachments/assets/d67e2836-2737-42dc-963e-f9b24fb4012c)
+
+[Sell Rules](https://x.com/AnkurPatel59/status/1953830055794364767)
+
+<img width="926" height="2005" alt="Gx0K_ppXIAApSMV" src="https://github.com/user-attachments/assets/71eaf9bb-3b28-4f68-8f1a-e32e9ea75a22" />
+
+
+[4T VCP](https://x.com/AnkurPatel59/status/1952335960693444786)
+
+4T VCP breakout in action - Textbook Setup📚
+
+#Trading
+
+<img width="537" height="719" alt="Gxf-TWEboAAEGcF" src="https://github.com/user-attachments/assets/aa38b005-a15e-42b4-aab5-8c4d3284bcf3" />
+
+
+[Lessons from Best Loser Wins](https://x.com/AnkurPatel59/status/1950455546907111662)
+
+#Trading
+
+![GxFhg-KbUAIbI2D](https://github.com/user-attachments/assets/14231c6f-26a6-4fa4-9e2e-b4b112caefb9)
+
+
