@@ -104,6 +104,18 @@ These are the ones most likely to lead the rally when the trend flips.
 <img width="1080" height="1350" alt="GyACJKvXQAETcLD" src="https://github.com/user-attachments/assets/27894b02-a9f8-40ef-a741-233c35a2d34d" />
 
 
+TI (Tilaknagar Ind) - 5 Star Setup ⭐️
+
++ Prior Upmove
++ Clean consolidation
++ Vol & Price contraction
++ Respect of EMAs
+
+Catalyst : Imperial Blue brand acquisition
+
+![img.png](img.png)
+
+
 ## [Ravi Sharma](https://x.com/StocksNerd)
 [Demand/Supply zones](https://x.com/StocksNerd/status/1933029111561130200)
 
@@ -334,14 +346,16 @@ If you're nothing without trading, you haven't understood trading at all:
 
 <img width="1200" height="585" alt="GxzzmozWAAArudS (1)" src="https://github.com/user-attachments/assets/9b8b45fd-8731-4bf9-9a71-da8325bf9bfd" />
 
+10 Similarities of the Biggest Stock Market Winners in the Last 100 Years 👇
+
+![img_2.png](img_2.png)
+
 ## [Sakatas Homma](https://x.com/SakatasHomma)
 [Sakatas Homma Articles](https://x.com/SakatasHomma/status/1947722876779483576)
 
 Long indepth article on http://sakatas.substack.com
 
-Join 7888 peak traders now,
-
-for FREE
+Join 7888 peak traders now, for FREE
 
 ## [Richard Moglen](https://x.com/RichardMoglen)
 [2025 TraderLion Conference](https://x.com/RichardMoglen/status/1947032889599943148)
@@ -350,3 +364,18 @@ I've put all the 2025 @TraderLion_
 Conference streams in 1 place for easy access.
 
 🔁 Retweet and share 🔁
+
+
+Trend Template ----Mark Minervin
+
+![img_1.png](img_4.png)
+
+Position sizing
+
+![img_2.png](img_3.png)
+
+Types of correction in market
+
+@thechartist26
+
+![img_1.png](img_1.png)

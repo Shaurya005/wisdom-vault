@@ -254,3 +254,20 @@ This....
 I came across @dayendtrader in 2022 and it has been a journey full of learning with him. Tonnes of calls to discuss the system.
 
 Must see this interview. That’s years of refinement.
+
+
+Recording available for the Free Webinar held on "CMT Examination" details
+
+You can see it over here: http://chartitude.com >> Start Learning >> after signing up for it.
+
+<img width="789" height="225" alt="image" src="https://github.com/user-attachments/assets/2fd9cfe6-32ed-4d93-8b2b-7c979ce93bfe" />
+
+
+
+Mark Minervini called this trade a faulty base.
+
+Any idea why?
+
+And why I never posted about Anant Raj breakout
+
+<img width="951" height="378" alt="image" src="https://github.com/user-attachments/assets/6a1842ef-a12c-4e7e-9dcc-b2d8426315af" />

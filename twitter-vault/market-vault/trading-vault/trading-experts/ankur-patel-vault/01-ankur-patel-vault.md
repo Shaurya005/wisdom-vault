@@ -50,4 +50,32 @@ Watch here: https://youtu.be/M-7P848WSLU
 
 ![GxFhg-KbUAIbI2D](https://github.com/user-attachments/assets/14231c6f-26a6-4fa4-9e2e-b4b112caefb9)
 
+Your brain is literally programmed to lose money in markets.
+
+The same mental patterns that make you successful in life will destroy you as a trader.
+
+Mark Douglas figured out how to rewire your trading psychology.
+
+Here are his 10 insights:
+
+![img_6.png](img_1.png)
+
+Swing trading is 80% stock selection, 20% execution.
+
+These 10 rules are how pros separate winners from the noise.
+
+![img_8.png](img_2.png)
+
+#Trading
+
+![img_3.png](img_3.png)
+
+#Trading
+
+![img_7.png](img_4.png)
+
+#Trading
+
+![img_5.png](img_5.png)
+
 

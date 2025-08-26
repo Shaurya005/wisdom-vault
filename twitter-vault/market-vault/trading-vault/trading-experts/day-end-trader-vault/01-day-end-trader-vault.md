@@ -47,3 +47,13 @@ Don’t give in to greed.
 
 ![Gxo8G5zWMAAelqN](https://github.com/user-attachments/assets/e1d84a2d-0f7a-41cb-946d-71a962368e00)
 
+
+Price is God and Gabriel was the archangel with the power to announce god's will to mankind.
+
+<img width="1200" height="760" alt="image" src="https://github.com/user-attachments/assets/8633328b-b8ac-47db-a4ff-129ad966a317" />
+
+Price is screaming now. Did you listen when she was whispering?
+
+<img width="1200" height="760" alt="image" src="https://github.com/user-attachments/assets/652ea8ff-c060-432a-80ee-dd8362d09692" />
+
+

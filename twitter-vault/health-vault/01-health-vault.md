@@ -86,3 +86,17 @@ Even regular walking has shown to have powerful impacts on brain structure and f
 *️⃣A more recent study suggests that activity levels equivalent to walking just under 3 hours daily for the least active populations could extend lifespan by 11 years on average (doi: 10.1136/bjsports-2024-108125).
 
 Even walking is an accessible, non-pharmacological intervention for promoting brain health, reducing disease risk, and enhancing longevity.
+
+[5 tips for healthy life](https://x.com/theliverdr/status/1955613864265162854)
+
+Surely.
+
+1️⃣Limit added sugar intake to 25 grams (approximately 5 teaspoons) per day from all sources.
+
+2️⃣Walk a minimum of 4000 steps per day
+
+3️⃣Have 3 cups of unsweetened black coffee a day
+
+4️⃣Vaccinate for hepatitis B
+
+5️⃣Consume at least 0.8g/kg body weight protein per day

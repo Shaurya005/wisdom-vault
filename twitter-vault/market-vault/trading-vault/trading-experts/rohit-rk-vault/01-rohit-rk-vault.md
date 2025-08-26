@@ -60,6 +60,7 @@ https://x.com/VVVStockAnalyst/status/1949704716134351330
 
 Announcement 📣
 
+
 Rather than burning your hands in such poor market conditions.
 
 Spend your time learning in and out about Institutional buying with more than 10 examples to help you visualise them.
@@ -131,6 +132,8 @@ On my wall always since 3 years.
 
 High Probability Trading
 
+<img width="2048" height="1536" alt="image" src="https://github.com/user-attachments/assets/b35a4452-1dd0-4170-b16e-10e43940c007" />
+
 [Win Rate and Environment](https://x.com/VVVStockAnalyst/status/1958818358389842320)
 
 The most important parameter for Swing trading for me is Win Rate and Environment
@@ -151,3 +154,21 @@ Only one man.
 I have gone through almost everyone who is famous and I find no one having a verified PL success at all, just show a few trades here and there. No authenticity can be built. I really respect Kiran ji for the kind of returns he generated in the bull market. I have personally learnt from his trades and I find no one else who I can suggest to all of you as a super performance trader.
 
 The one man I really respect very deeply and will be indebted to be connected to. No one else I feel has done such extraordinary performance that too in a verified way, people just talk big things, very less show proof of success !
+
+
+If this is not called a clean setup, then what is clean ?
+
+11% depth IPO Base.
+
+<img width="1200" height="499" alt="image" src="https://github.com/user-attachments/assets/7339a260-9083-44e6-8696-deb71874e2ed" />
+
+
+[Champion Trader](https://x.com/VVVStockAnalyst/status/1955138833844208078)
+
+How to become a Champion Trader : The Complete Guide
+
+To everyone thinking of becoming a Champion Trader and stepping into the world of stockmarkets with a dream & desire to become Rich
+
+Here is they way to do it professionally with longevity.
+
+Link: https://vvvlearn.com/post/how-to-become-a-champion-trader
