@@ -124,3 +124,30 @@ Knowing when to press the gas, and when to sit out sipping your tea is real know
 Knowledge = Concepts + Experience + Practice.
 
 ![20250811_225900](https://github.com/user-attachments/assets/9e62137e-b9ad-43c3-a452-705890426284)
+
+[On My Wall](https://x.com/VVVStockAnalyst/status/1959849396985815236)
+
+On my wall always since 3 years.
+
+High Probability Trading
+
+[Win Rate and Environment](https://x.com/VVVStockAnalyst/status/1958818358389842320)
+
+The most important parameter for Swing trading for me is Win Rate and Environment
+
+Even if a few stocks are doing 10-15% moves but that % win rate is too low. Im not trading such kind of markets.
+
+I only want to play high win rate markets and environments. That's my game !
+
+
+[Who I admire](https://x.com/VVVStockAnalyst/status/1958821658355278134)
+
+A lot of you ask me, who is that one person who you respect a lot for their trading skill in twitter.
+
+Only one man.
+@KiranBhosale007
+
+
+I have gone through almost everyone who is famous and I find no one having a verified PL success at all, just show a few trades here and there. No authenticity can be built. I really respect Kiran ji for the kind of returns he generated in the bull market. I have personally learnt from his trades and I find no one else who I can suggest to all of you as a super performance trader.
+
+The one man I really respect very deeply and will be indebted to be connected to. No one else I feel has done such extraordinary performance that too in a verified way, people just talk big things, very less show proof of success !

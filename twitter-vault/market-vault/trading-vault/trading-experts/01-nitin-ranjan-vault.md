@@ -158,3 +158,16 @@ Although individual setups are available, the overall market environment is rela
 
 ![GxocdkBXAAAP4AA](https://github.com/user-attachments/assets/49fc98e8-93f7-437a-8eb8-19ce4aeec37e)
 
+[Mswing Resources](https://x.com/finallynitin/status/1903856316449177707)
+
+All the Mswing Resources by
+@SakatasHomma:
+
+📈Link to TradingView indicator:
+https://in.tradingview.com/script/K6HM7Fqj-Mswing-Homma/
+
+🎬 Link to YouTube explainer video:
+https://youtu.be/NCBD5h9hLi8?si=kbh1BHUO202FATC1
+
+📊Link to Chartink Mswing breadth dashboard:
+https://chartink.com/dashboard/284632

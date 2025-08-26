@@ -113,19 +113,6 @@ It’s no longer just Bars/ Candles on a chart, it’s a conversation between bu
 
 Read it right and you are already ahead of the crowd.
 
-
-## [Hiren Gabani](https://x.com/Hirengabani23)
-[Cutting Noise](https://x.com/Hirengabani23/status/1932028633356312885)
-
-How do I cut the noise from many setups to 2-3 tradable ideas?
-
-⏩Focus on stage-2 stocks
-⏩Trade stock having a linear base
-⏩Trade smooth movers
-⏩Trade stocks with solid volume action.
-
-& Manage your risk well.
-
 ## [Anand Shah](https://x.com/Anand_shah07)
 [Play the Market Like Yourself](https://x.com/Anand_shah07/status/1945503416098173238)
 
@@ -170,22 +157,8 @@ My indicators are simple for swing trading😍:
 
 💠Stocks generally takes time once stoploss hits to again continue rally so better to exit though your selection is good
 
-## [Mark Minervini](https://x.com/markminervini)
-[Market Doesn't Lie](https://x.com/markminervini/status/1943034662571348350)
-
-The market doesn't lie. It speaks in price action. The problem is, depending on when and where you are in the market, the lauagauge can change. Context is everything. Nothing can be trusted in a vacuum or in perpetuity. Don't be fooled. Even timeless tactics require timing.
-
-
-[Bottom Fishing](https://x.com/markminervini/status/1948574510753485145)
-
-True story...
-
-<img width="680" height="526" alt="Gwq6BDNWgAAdqz3" src="https://github.com/user-attachments/assets/652fe776-33b2-4f89-b0f4-66b09ea07b7a" />
-
-
 ## [Gaurav Vasshisht](https://x.com/gauravvasshisht)
 [Dan Zanger Quote](https://x.com/gauravvasshisht/status/1941280886076604582)
-
 
 “I test the waters on a lot of stocks that break out, and I probably sell at least 50 percent of them either a minor gain or loss because they aren’t acting the way I want them to. It’s just like fishing — you never know when you’ll get a big fish on the line. One thing is certain — if you don’t step in and buy the stock on the breakout, you won’t have a chance to know what you’ve got. So I do a lot of fishing.” - Dan Zanger
 
@@ -241,17 +214,6 @@ What's your 2x or 3x stock that you are still holding ?
 I used to think watching the market all day  gave me more control but now I know it just gives me more time to lie to myself. give me six hours staring at the screen and I’ll turn any chart into a reason to buy or sell.
 
 
-## [Manas Arora](https://x.com/iManasArora)
-[Cutting Losses](https://x.com/iManasArora/status/1909201242011639830)
-
-If you’re a swing trader, you can’t afford to take large losses. You’re aiming for 20–40% moves, so there’s no way you can hold onto a stock that’s down 20% from your entry price. If this sounds like you, the first change you need to make is to start cutting your losses at 2–4%.
-
-[Win Rate](https://x.com/iManasArora/status/1948655787179380970)
-
-“My win rate is 30 percent, and I make money year on year not trade by trade, week by week, or month by month.”
-
-This is how I think and this mindset shift removes the constant pressure we place on ourselves after every trade. And of course, only those who are not fully dependent on trading income can truly afford to think this way.
-#BroTip
 
 [LIQUIDITY FORCE indicator](https://x.com/iManasArora/status/1947887759852769599)
 

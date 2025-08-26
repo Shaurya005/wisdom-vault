@@ -62,3 +62,8 @@ launched alerts last week and it has completely changed how I follow markets! Be
 
 Loving the experience so far! 😍
 
+## [Ujjwal Kumar](https://x.com/ujwal_kr)
+[Reading Con Calls](https://x.com/ujwal_kr/status/1957803125009682554)
+
+90% problems of the retailers will get solved if they just start reading concalls of their portfolio companies and learn basic financial modeling and technical analysis.
+
