@@ -28,12 +28,11 @@ Watch here: https://youtu.be/M-7P848WSLU
 
 [Trading](https://x.com/AnkurPatel59/status/1953770412695072858)
 
-![Gx0KjhfW4AA11FA (1)](https://github.com/user-attachments/assets/d67e2836-2737-42dc-963e-f9b24fb4012c)
+![img.png](img.png)
 
 [Sell Rules](https://x.com/AnkurPatel59/status/1953830055794364767)
 
-<img width="926" height="2005" alt="Gx0K_ppXIAApSMV" src="https://github.com/user-attachments/assets/71eaf9bb-3b28-4f68-8f1a-e32e9ea75a22" />
-
+![img_6.png](img_6.png)
 
 [4T VCP](https://x.com/AnkurPatel59/status/1952335960693444786)
 
@@ -41,14 +40,15 @@ Watch here: https://youtu.be/M-7P848WSLU
 
 #Trading
 
-<img width="537" height="719" alt="Gxf-TWEboAAEGcF" src="https://github.com/user-attachments/assets/aa38b005-a15e-42b4-aab5-8c4d3284bcf3" />
-
+![img_7.png](img_7.png)
 
 [Lessons from Best Loser Wins](https://x.com/AnkurPatel59/status/1950455546907111662)
 
 #Trading
 
-![GxFhg-KbUAIbI2D](https://github.com/user-attachments/assets/14231c6f-26a6-4fa4-9e2e-b4b112caefb9)
+![img_8.png](img_8.png)
+
+[Brain Programming](https://x.com/AnkurPatel59/status/1955118309768118340)
 
 Your brain is literally programmed to lose money in markets.
 
@@ -60,21 +60,23 @@ Here are his 10 insights:
 
 ![img_6.png](img_1.png)
 
+[80% Stock Selection](https://x.com/AnkurPatel59/status/1957789286176014468)
+
 Swing trading is 80% stock selection, 20% execution.
 
 These 10 rules are how pros separate winners from the noise.
 
 ![img_8.png](img_2.png)
 
-#Trading
+[#Trading](https://x.com/AnkurPatel59/status/1956366771847377373)
 
 ![img_3.png](img_3.png)
 
-#Trading
+[#Trading](https://x.com/AnkurPatel59/status/1954857827874623580)
 
 ![img_7.png](img_4.png)
 
-#Trading
+[#Trading](https://x.com/AnkurPatel59/status/1955157804492394553)
 
 ![img_5.png](img_5.png)
 

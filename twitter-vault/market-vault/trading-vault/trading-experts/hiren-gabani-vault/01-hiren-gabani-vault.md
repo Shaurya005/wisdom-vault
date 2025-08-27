@@ -25,7 +25,7 @@ How do I cut the noise from many setups to 2-3 tradable ideas?
 
 ✨This is the reason I always says: Don't buy anything blindly without context.
 
-<img width="1200" height="777" alt="image" src="https://github.com/user-attachments/assets/2a851556-d9ef-4f45-81d2-76a2494e14cc" />
+![img_6.png](img_6.png)
 
 [2-4 % Drawdowns](https://x.com/Hirengabani23/status/1946072354851110962)
 
@@ -40,12 +40,11 @@ That's the truth.
 
 [Win Rate](https://x.com/Hirengabani23/status/1946780963327078703)
 
-🌟My trading system in a nutshell
+[🌟My trading system in a nutshell](https://x.com/Hirengabani23/status/1946780963327078703)
 
 Few🤌🤌
 
-<img width="480" height="283" alt="image" src="https://github.com/user-attachments/assets/1ab3ef9f-3eb5-4c69-ad84-4b07418f3acb" />
-
+![img_5.png](img_5.png)
 
 [Daily Scanning](https://x.com/Hirengabani23/status/1953712141329920210)
 
@@ -73,11 +72,11 @@ Give it a try and thank me later.
 <img width="922" height="1200" alt="image" src="https://github.com/user-attachments/assets/f9103e38-d61f-43bd-82fc-81288ff8dc1d" />
 
 
-What creates explosive performance?✍️
+[What creates explosive performance?✍️](https://x.com/Hirengabani23/status/1948285324649738321)
 
-<img width="821" height="586" alt="image" src="https://github.com/user-attachments/assets/7681a7bb-5641-41e0-a4f6-b34ea716d934" />
+![img_4.png](img_4.png)
 
-
+[Decrease Size in Drawdowns](https://x.com/Hirengabani23/status/1948968704433402070)
 
 ✨Increasing size to cover losses is the worst thing you can do as a trader. When in DD instead decrease size. Use progressive exposure.
 
@@ -85,32 +84,28 @@ What creates explosive performance?✍️
 
 Save the chips💲💸
 
-<img width="315" height="355" alt="image" src="https://github.com/user-attachments/assets/e72aa90f-0742-4f0d-bb9a-488b54f39b97" />
+![img_9.png](img_9.png)
 
-
-“Cut losses short and ride the winners”
+[“Cut losses short and ride the winners”](https://x.com/Hirengabani23/status/1949785109504176554)
 
 ✍️✍️
 
-<img width="1200" height="947" alt="image" src="https://github.com/user-attachments/assets/7f913088-d11a-4554-a05a-4b60fc577bef" />
+![img_3.png](img_3.png)
 
-
-Mark Minervini on finding bottoms✍️
+[Mark Minervini on finding bottoms✍️](https://x.com/Hirengabani23/status/1953426723283816630)
 
 ![img_4.png](img_2.png)
 
-💫Importance of managing drawdowns
+[💫Importance of managing drawdowns](https://x.com/Hirengabani23/status/1954916206059933737)
 
-<img width="1080" height="857" alt="image" src="https://github.com/user-attachments/assets/66c0897e-9cac-45a8-b947-5430f1f9f79b" />
+![img.png](img.png)
 
+[💫How to achieve big return with a little drawdown 👇👇](https://x.com/Hirengabani23/status/1957394994953658530)
 
-💫How to achieve big return with a little drawdown 👇👇
-
-<img width="885" height="1200" alt="image" src="https://github.com/user-attachments/assets/5fa823af-a32d-4769-b5cf-4b5cac9fcf0d" />
-
+![img_7.png](img_7.png)
 
 
-💫Lost 1.24% of the account in #Hirect today.
+[💫Lost 1.24% of the account in #Hirect today.](https://x.com/Hirengabani23/status/1958023141961216281)
 
 💫Faced big slippage in exit. It was too quick to handle. Placed stop loss in the system but had to exit it manually because of quick fall🥲
 
@@ -118,7 +113,19 @@ Happened this to me after a long time. Yes it hurts but also it’s part of this
 
 <img width="1200" height="851" alt="image" src="https://github.com/user-attachments/assets/8278922d-7090-4336-ad65-f71f34919343" />
 
-Myth buster✍️
+[Myth buster✍️](https://x.com/Hirengabani23/status/1956337775344578873)
 
 ![img_4.png](img_1.png)
 
+
+[Eye opener✍️✍️ @stamatoudism](https://x.com/Hirengabani23/status/1960349013435384152)
+
+![img_8.png](img_8.png)
+
+[This quote should be on your wall 🔥](https://x.com/Hirengabani23/status/1947307906371588610)
+
+![img_10.png](img_10.png)
+
+[Tennis ball action explained by @iManasArora 👏🙌](https://x.com/Hirengabani23/status/1945782167071801572)
+
+![img_11.png](img_11.png)

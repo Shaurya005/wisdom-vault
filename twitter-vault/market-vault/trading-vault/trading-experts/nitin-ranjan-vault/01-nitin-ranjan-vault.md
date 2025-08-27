@@ -173,7 +173,7 @@ https://youtu.be/NCBD5h9hLi8?si=kbh1BHUO202FATC1
 https://chartink.com/dashboard/284632
 
 
-[2021 Bullish Charts]()
+[2021 Bullish Charts](https://x.com/finallynitin/status/1461739117704744962)
 
 #BullishCharts CW46/2021
 
@@ -198,5 +198,4 @@ https://chartink.com/dashboard/284632
 ⦿ TCIEXP
 ⦿ TRIVENI
 
-<img width="3234" height="2210" alt="image" src="https://github.com/user-attachments/assets/20ffb0f7-2a6a-4388-84f9-ad0aa911f356" />
-
+![img.png](img.png)

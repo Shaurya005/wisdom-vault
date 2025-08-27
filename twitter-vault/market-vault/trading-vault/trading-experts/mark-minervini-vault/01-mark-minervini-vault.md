@@ -11,5 +11,4 @@ The market doesn't lie. It speaks in price action. The problem is, depending on 
 
 True story...
 
-<img width="680" height="526" alt="Gwq6BDNWgAAdqz3" src="https://github.com/user-attachments/assets/652fe776-33b2-4f89-b0f4-66b09ea07b7a" />
-
+![img.png](img.png)

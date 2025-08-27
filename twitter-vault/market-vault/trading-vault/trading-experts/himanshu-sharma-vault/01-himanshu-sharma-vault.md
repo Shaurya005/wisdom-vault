@@ -93,8 +93,6 @@ If it falls and hit the SL - I lose 0.5-0.7% per trade.
 
 If it flies high in the air - I have a full 10% size.
 
-![](/Users/shaurya.jaiswal/Downloads/GwH6e2Ga0AAH2_3.jpeg)
-
 [Catch Multibaggers](https://x.com/_chartitude/status/1944205493590794284)
 
 If you want to catch multi-baggers - you need just three scans:
@@ -240,14 +238,13 @@ Bookmark and RT for others
 
 65 hours+ of learning over here with more than 100s of doubts
 
-![GxkV4NOXkAEJdbk](https://github.com/user-attachments/assets/bfa2fd5f-4621-4af6-9c20-b374a16cb0e4)
-
+![img.png](img.png)
 
 [Dan's 10 Golden Rule](https://x.com/thechartist26/status/1951629302220349683)
 
 This....
 
-<img width="897" height="660" alt="GxWUf2oXkAAjRvi" src="https://github.com/user-attachments/assets/955be0ba-ac68-47ba-ba12-7cc13ce88b50" />
+![img_1.png](img_1.png)
 
 [About Day End Trader](https://x.com/thechartist26/status/1954714300947554724)
 

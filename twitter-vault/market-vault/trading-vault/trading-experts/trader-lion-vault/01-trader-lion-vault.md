@@ -6,9 +6,16 @@
 
 Stan Weinstein’s sell rules are a masterclass in keeping your gains
 
-<img width="1545" height="2000" alt="image" src="https://github.com/user-attachments/assets/ee9e18bd-697f-4200-81b9-6cd877294e3f" />
+![img_3.png](img_3.png)
 
-Why Focused Traders Outperform
-@AmeetRai_
+[Why Focused Traders Outperform @AmeetRai_](https://x.com/TraderLion_/status/1956330765895012552)
 
 ![img_2.png](img.png)
+
+https://x.com/TraderLion_/status/1960366574939869449
+
+![img_1.png](img_1.png)
+
+https://x.com/TraderLion_/status/1957467682959188277
+
+![img_2.png](img_2.png)

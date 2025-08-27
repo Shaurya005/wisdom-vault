@@ -22,7 +22,7 @@ I stopped sitting in stocks that broke out and spend days and weeks there, it sh
 
 Few understand this magic formula but those who do will do really well in Trading.
 
-<img width="1512" height="198" alt="Gu_8S2yWQAAlVsk" src="https://github.com/user-attachments/assets/668f085e-a075-4716-b8a4-564525ed3c86" />
+![img_6.png](img_6.png)
 
 [IPO Flags](https://x.com/VVVStockAnalyst/status/1940813584407449767)
 
@@ -44,8 +44,7 @@ Avoid - Large Losses.
 
 That's how you maintain flag ranges after the push ups.
 
-![Gu0xP8BXQAADI3L](https://github.com/user-attachments/assets/d9233a3d-bf23-450b-b32b-5f2be38f417f)
-
+![img_2.png](img_2.png)
 
 [Making Money in Market](https://x.com/VVVStockAnalyst/status/1939542785293492674)
 
@@ -56,10 +55,9 @@ IPO Bases.
 Sectoral Bets.
 
 
-https://x.com/VVVStockAnalyst/status/1949704716134351330
+[Trader Lion Conference](https://x.com/VVVStockAnalyst/status/1949704716134351330)
 
 Announcement 📣
-
 
 Rather than burning your hands in such poor market conditions.
 
@@ -81,10 +79,7 @@ The post Covid Era is just a period in Indian history of sporadic growth and exc
 
 [IPO Base](https://x.com/VVVStockAnalyst/status/1954464526482706667)
 
-IPO Base
-
-![Gx-nH6dXIAIeOUU ](https://github.com/user-attachments/assets/234fbf40-3798-4119-ac06-c52700f49aaf)
-
+![img_3.png](img_3.png)
 
 [1.5 hours Presentation](https://x.com/VVVStockAnalyst/status/1954870642920341575)
 
@@ -109,12 +104,10 @@ If you want to read only 2 books about the stockmarket to learn about trading.
 
 It's just these two.
 
-The 2 legendary books by
-@markminervini
+The 2 legendary books by @markminervini
 - They are the absolute beast books to start your understanding about the stock market and Swing trading.
 
-![GwdF5NJbEAAM-OQ](https://github.com/user-attachments/assets/01b62212-3572-4849-9f83-40bb702713c5)
-
+![img_4.png](img_4.png)
 
 [Making and Keeping Money](https://x.com/VVVStockAnalyst/status/1947136953067155779)
 
@@ -124,7 +117,7 @@ Knowing when to press the gas, and when to sit out sipping your tea is real know
 
 Knowledge = Concepts + Experience + Practice.
 
-![20250811_225900](https://github.com/user-attachments/assets/9e62137e-b9ad-43c3-a452-705890426284)
+![img_5.png](img_5.png)
 
 [On My Wall](https://x.com/VVVStockAnalyst/status/1959849396985815236)
 
@@ -132,7 +125,7 @@ On my wall always since 3 years.
 
 High Probability Trading
 
-<img width="2048" height="1536" alt="image" src="https://github.com/user-attachments/assets/b35a4452-1dd0-4170-b16e-10e43940c007" />
+![img.png](img.png)
 
 [Win Rate and Environment](https://x.com/VVVStockAnalyst/status/1958818358389842320)
 
@@ -155,13 +148,13 @@ I have gone through almost everyone who is famous and I find no one having a ver
 
 The one man I really respect very deeply and will be indebted to be connected to. No one else I feel has done such extraordinary performance that too in a verified way, people just talk big things, very less show proof of success !
 
+[Clean Setup](https://x.com/VVVStockAnalyst/status/1957674058968903973)
 
 If this is not called a clean setup, then what is clean ?
 
 11% depth IPO Base.
 
-<img width="1200" height="499" alt="image" src="https://github.com/user-attachments/assets/7339a260-9083-44e6-8696-deb71874e2ed" />
-
+![img_1.png](img_1.png)
 
 [Champion Trader](https://x.com/VVVStockAnalyst/status/1955138833844208078)
 

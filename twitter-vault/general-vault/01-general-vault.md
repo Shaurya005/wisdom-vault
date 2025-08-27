@@ -28,3 +28,17 @@ A wandering mind is an unhappy mind.
 [What you want](https://x.com/thedankoe/status/1940098937521922213)
 
 Life is hard because you don't know what you want. That's 90% of the battle. Once you have extreme clarity on what you want, after 5-10 calculated risks, everything else is quite simple. If you can reach that before you turn 25, you're in the top 1%.
+
+(https://x.com/naval/status/1254177712945500160)
+
+Fast, lift, sprint, stretch, and meditate.
+
+Build, sell, write, create, invest, and own.
+
+Read, reflect, love, seek truth, and ignore society.
+
+Make these habits. Say no to everything else.
+
+Avoid debt, jail, addiction, disgrace, shortcuts, and media.
+
+Relax. Victory is assured.

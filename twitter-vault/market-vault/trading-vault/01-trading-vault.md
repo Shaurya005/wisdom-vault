@@ -1,7 +1,5 @@
 # **Trading Vault**
 
-
-
 ## [Shubham Gupta aka Investorniti](https://x.com/investorniti)
 [IPO Trading](https://x.com/investorniti/status/1937081329822093519)
 
@@ -104,7 +102,7 @@ These are the ones most likely to lead the rally when the trend flips.
 <img width="1080" height="1350" alt="GyACJKvXQAETcLD" src="https://github.com/user-attachments/assets/27894b02-a9f8-40ef-a741-233c35a2d34d" />
 
 
-TI (Tilaknagar Ind) - 5 Star Setup ⭐️
+[TI (Tilaknagar Ind) - 5 Star Setup ⭐️](https://x.com/chartians/status/1956940236417839538)
 
 + Prior Upmove
 + Clean consolidation
@@ -182,8 +180,7 @@ My first salary was 4500 per month in toyota service centre.
 
 And now in 1.5 Years i made this 👇🥺
 
-![Gu3Lq7tWQAAK5fY](https://github.com/user-attachments/assets/0682a8c3-5bca-4719-9d73-1e9cac3b04d3)
-
+![img_7.png](img_7.png)
 
 In this journey i made many mistakes , my capital in start of 2022 is 7-8 lakhs only then i add some capital also , i learn many thinks in this 2-3 years from my frnds
 @stocksgeeks
@@ -210,22 +207,19 @@ Mathematicians and Einstein: “god does not play dice”, there are causes with
 
 Godel: but God doesn’t share  its secrets, and may well keep them hidden forever!
 
-![Gu1utByWEAA3jjS](https://github.com/user-attachments/assets/26ee90ef-b92b-447e-998d-e91adbb18e4b)
-
+![img_8.png](img_8.png)
 
 ## [Advait Arora](https://x.com/WealthEnrich)
 [Multibagger Stocks](https://x.com/WealthEnrich/status/1940237877574861012)
 
 What's your 2x or 3x stock that you are still holding ?
 
-![Gu0cEUhXMAAgZBX](https://github.com/user-attachments/assets/84fd9c1a-13fd-41b3-aead-c15c51a3c608)
+![img_9.png](img_9.png)
 
 ## [Nick Schmidt](https://x.com/NickSchmidt_)
 [Watching Market](https://x.com/NickSchmidt_/status/1940035754505224200)
 
 I used to think watching the market all day  gave me more control but now I know it just gives me more time to lie to myself. give me six hours staring at the screen and I’ll turn any chart into a reason to buy or sell.
-
-
 
 [LIQUIDITY FORCE indicator](https://x.com/iManasArora/status/1947887759852769599)
 
@@ -233,8 +227,7 @@ This is my new LIQUIDITY FORCE indicator. Combine it with BUYING FORCE and you c
 
 Used my own interpretation of it and caught #MCLOUD, #RHIM, #DATAMATICS to name a few
 
-Thanks
-@finallynitin
+Thanks @finallynitin
 
 ## [Ameet Rai](https://x.com/AmeetRai_)
 [Mark Minervini’s Buy Rules](https://x.com/AmeetRai_/status/1864280933718696323)
@@ -331,24 +324,25 @@ In the long run, market should punish rule-breakers that’s healthy.
 
 Managing Winning Trades: How to Let Profits Run Without Giving Them Back 👇
 
-![GyEjgEoWMAAhLn2](https://github.com/user-attachments/assets/7026ac3b-13e4-44ee-a6b3-6d4330d67bb8)
+![img_12.png](img_12.png)
 
-[Institutional Buying](https://x.com/BlogJulianKomar/status/1953130212348113118)
+[10 Clues Institutions Are Buying 👇](https://x.com/BlogJulianKomar/status/1953130212348113118)
 
-10 Clues Institutions
-Are Buying 👇
-
-![Gxrpk6wW4AA9vwA](https://github.com/user-attachments/assets/901f262a-080e-4582-b469-d02639fc9d41)
+![img_10.png](img_10.png)
 
 [Understand Trading](https://x.com/stonks_sensei/status/1953704251831492685)
 
 If you're nothing without trading, you haven't understood trading at all:
 
-<img width="1200" height="585" alt="GxzzmozWAAArudS (1)" src="https://github.com/user-attachments/assets/9b8b45fd-8731-4bf9-9a71-da8325bf9bfd" />
+![img_11.png](img_11.png)
 
-10 Similarities of the Biggest Stock Market Winners in the Last 100 Years 👇
+[10 Similarities of the Biggest Stock Market Winners in the Last 100 Years 👇](https://x.com/BlogJulianKomar/status/1954942150845542605)
 
 ![img_2.png](img_2.png)
+
+[The Power of Patience in Trading 👇](https://x.com/BlogJulianKomar/status/1959290795451662394)
+
+![img_5.png](img_5.png)
 
 ## [Sakatas Homma](https://x.com/SakatasHomma)
 [Sakatas Homma Articles](https://x.com/SakatasHomma/status/1947722876779483576)
@@ -366,11 +360,11 @@ Conference streams in 1 place for easy access.
 🔁 Retweet and share 🔁
 
 
-Trend Template ----Mark Minervin
+[Trend Template ----Mark Minervin](https://x.com/RebellioMarket/status/1956509689614598303)
 
 ![img_1.png](img_4.png)
 
-Position sizing
+[Position sizing](https://x.com/TmarketL/status/1956517721882923128)
 
 ![img_2.png](img_3.png)
 
@@ -379,3 +373,7 @@ Types of correction in market
 @thechartist26
 
 ![img_1.png](img_1.png)
+
+[The VCP](https://x.com/Stockeens/status/1959885328967176412)
+
+![img_6.png](img_6.png)
