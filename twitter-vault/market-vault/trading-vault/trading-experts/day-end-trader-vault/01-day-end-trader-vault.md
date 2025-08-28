@@ -106,3 +106,39 @@ In bear markets, days that open up usually fall to close negatively.
 Course complete.
 Thank you for tuning in. 🙏
 
+[Book Recommendations](https://x.com/dayendtrader/status/1960909400274514281)
+
+1. How to Make Money in Stocks- WON
+2. Mark Minervini (All 3 books)
+3. Best Loser Wins - Tom.H
+4. How to Profit from Bull and Bear Markets - Stan.W
+5. Market Wizards - Jack.S
+Bonus: Zanger’s Newsletters
+
+[Wall of Brilliance](https://x.com/dayendtrader/status/1960716318254014581)
+
+How to build 'A Wall of Brilliance' and weaponize your Twitter feed. A simple 2-step process.
+
+Step 1: Ask yourself THE Question
+
+Do some deep work on what kind of trader you 'are', or at least 'want to be'.
+
+No matter what the answer is: Scalper, intraday, swing, position. You could be techno or funda or techno funda. You could be a momentum trader or a value investor etc etc etc.
+
+Maybe you want to idolize the daily timeframe or maybe only look at weekly charts. Or maybe you don't look at charts at all. (Shrug...Sometimes I scare myself)
+
+The style doesn't matter, the time frame doesn't matter. The only thing that matters is that you are true to yourself.
+
+Step 2: Listen to the Answer
+
+Let's say, for the sake of this example, you decide to be a Breakout/Swing Trader who is only Techno and is most comfortable with the daily timeframe.
+
+Once you have answered this question there is only one thing left to do. Only seek out experts who are doing the same. Unfollow everyone else!! Literally no other kind of trader/investor should exist on your timeline. Even a single page (if influential enough), that doesn't align with your style, will potentially have the power to sway you off your path.
+DO NOT ENTERTAIN THEM.
+DO NOT LET THEM LIVE RENT-FREE IN YOUR BRAIN.
+
+Do it now. Do it today. There can't be a more auspicious day to start something new!
+
+Build yourself a Wall of Brilliance. 🧠
+
+

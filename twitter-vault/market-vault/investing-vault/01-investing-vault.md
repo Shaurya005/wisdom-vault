@@ -97,3 +97,14 @@ PE doesn't give the right measure of valuation
 Free cash flow basics from Aswath Damodaran
 
 Hard to believe this is all free!
+
+## [Utkarsh Singh](https://x.com/Utkarshsingh107)
+[Mohnish Pabrai Podcast](https://x.com/Utkarshsingh107/status/1960342918352552353)
+
+“The biggest risk in life is not doing what your heart wants. You need to get your music out.”
+“Maximise doing what makes you the happiest and not what makes you the most money.”
+
+- @MohnishPabrai
+
+A must watch podcast - https://youtube.com/watch?v=qgeQ5kMVwRA
+

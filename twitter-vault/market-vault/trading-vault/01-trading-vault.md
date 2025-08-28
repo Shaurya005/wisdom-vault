@@ -228,6 +228,21 @@ What would you add?
 
 ![img_14.png](img_14.png)
 
+[Last Week's Low](https://x.com/NickSchmidt_/status/1960518452604526809)
+
+Last week felt like the beginning of a correction until Friday. The last 3 days have been so far positive action.
+
+The more time we spend above last week’s lows increase the odds that it was just a shakeout. And shakeouts arent random, they happen before big rallies.
+
+A lot of leaders have been stalling for the past few weeks which is why despite the indexes going up it’s been harder to make progress… and then we get a week like last week and the selling on top of the no progress makes you get defensive.
+
+Most of the leaders have recovered in 3 days right back into their base and it can’t be ignored because the negative expectations (so far) has been broken.
+
+If it was just a shakeout, then the leaders that we see with big hammer candles last week are coming up the right side of their base and getting ready to rally again.
+
+![img_16.png](img_16.png)
+
+
 ## [Ameet Rai](https://x.com/AmeetRai_)
 [Mark Minervini’s Buy Rules](https://x.com/AmeetRai_/status/1864280933718696323)
 
@@ -283,9 +298,7 @@ The smart money was in early.
 How to Become Best in Trading :
 
 1. Watch One Good Video around a length of 1.5 or 2 Hour
-   My Recommendation :
-   @TraderLion_
-   Youtube Channel
+   My Recommendation : @TraderLion_ Youtube Channel
 
 2. Watch 200 Charts which are up more than 20% in a Week and up more than 50% in a month
 
@@ -417,4 +430,34 @@ Exception: The only failure occurred in 2006, when markets continued their uptre
 If the Death Cross is triggered investors should prepare for potential market headwinds.
 
 ![img_13.png](img_13.png)
+
+## [Kaushal Thapa](https://x.com/ChartistEdge)
+[Contraction / HTF setups](https://x.com/ChartistEdge/status/1960951352139387083)
+
+The best contraction / HTF setups share the same traits:
+
+🔸Clean up move before consolidation
+
+🔸Tight, compact range
+
+🔸Highs/lows holding strong
+
+🔸Volume dries up in contraction
+
+🔸Breakout comes with good volume
+
+Master these traits & spotting quality setups gets simple🥂
+
+![img_15.png](img_15.png)
+
+## [Mohit Rai](https://x.com/mohitrai55)
+[Manas Arora Trades](https://x.com/mohitrai55/status/1960308636410110357)
+
+📊 I went through all of @iManasArora
+2021 𝙩𝙧𝙖𝙙𝙚𝙨 & 𝙘𝙤𝙢𝙥𝙞𝙡𝙚𝙙 𝙡𝙚𝙖𝙧𝙣𝙞𝙣𝙜𝙨 𝙞𝙣𝙩𝙤 𝙖 𝙋𝘿𝙁. 🚀
+
+𝘾𝙝𝙚𝙘𝙠 𝙞𝙩 𝙤𝙪𝙩 👇
+https://drive.google.com/file/d/1HSu8rHoW7n_vHKZBmw7BAA9VTnjOTKaS/view?usp=drivesdk
+
+Follow @mohitrai55 for more research-driven breakdowns & trading insights 🔥
 

@@ -139,3 +139,13 @@ I don't think so.
 Reason👇
 
 ![img_12.png](img_12.png)
+
+[Bad Market Environment](https://x.com/Hirengabani23/status/1960945334584049897)
+
+💫The problem with this market is not the availability of setups. The issue is what happens after the breakout.
+
+💫No follow-throughs + Stocks becoming dead after breakout + Volatility is still high.
+
+Wait for your pitch.
+
+![img_13.png](img_13.png)

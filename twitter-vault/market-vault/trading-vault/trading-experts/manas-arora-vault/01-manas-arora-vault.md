@@ -39,3 +39,30 @@ This is my new LIQUIDITY FORCE indicator. Combine it with BUYING FORCE and you c
 Used my own interpretation of it and caught #MCLOUD, #RHIM, #DATAMATICS to name a few
 
 Thanks @finallynitin
+
+[First touch to the 20MA or 50MA](https://x.com/iManasArora/status/1960718632083714526)
+
+The first touch to the 20MA or 50MA after a stock has had a strong move is often an easy money trade. But remember, first touch does not mean you buy the moment the stock touches the moving average. What you do is put such names into your focus list, observe closely, and then strike with a setup you trust whether it is SVRO, VCP, or any other buying system you follow.
+
+Master this one set-up alone. You don't need any course.
+#BroTip
+
+![img.png](img.png)
+
+[How to trade BIG one day?](https://x.com/agarwaltarun28/status/1960603661928947749)
+#BroTip
+
+![img_1.png](img_1.png)
+
+Note down
+the prior uptrend %
+Consolidation length and depth
+Consolidation quality
+% rise when the trend resumed, angle and length.
+Volume behaviour before and after
+RS behaviour to the index
+
+```
+Manas bhai, is there any particular template or checklist to follow while doing deep dives of past winners?
+```
+

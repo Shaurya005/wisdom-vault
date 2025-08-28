@@ -173,3 +173,13 @@ The best places to learn about Trading
 1. Books - Minnervini and O Neil
 2. Youtube videos of Kullamagie
 
+[Taking cues from heroes](https://x.com/VVVStockAnalyst/status/1961000167320027186)
+
+Your heroes are your blueprints.
+
+I took many cues from Minnervini, O'Neil and many other legends and finally brought in my own touch to the game.
+
+The waiting game is something I have mastered and am very proud of. That was obtained from Darvas
+
+![img_7.png](img_7.png)
+

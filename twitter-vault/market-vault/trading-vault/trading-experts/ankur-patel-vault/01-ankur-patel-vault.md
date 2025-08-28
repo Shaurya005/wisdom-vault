@@ -17,14 +17,11 @@ Video Out Now -  https://youtu.be/ZZOPvH77QZU
 
 [Day End Trader Interview](https://x.com/AnkurPatel59/status/1954022574821892144)
 
-@dayendtrader
-shares how he goes from 0% to 100% invested and back.
+@dayendtrader shares how he goes from 0% to 100% invested and back.
 
 If you struggle with when to go all-in or all-out, don’t miss this one.
 
 Watch here: https://youtu.be/M-7P848WSLU
-
-
 
 [Trading](https://x.com/AnkurPatel59/status/1953770412695072858)
 
@@ -80,4 +77,10 @@ These 10 rules are how pros separate winners from the noise.
 
 ![img_5.png](img_5.png)
 
+[#Trading](https://x.com/AnkurPatel59/status/1960988728748659149)
 
+![img_9.png](img_9.png)
+
+[#Trading](https://x.com/AnkurPatel59/status/1960916192928870657)
+
+![img_10.png](img_10.png)

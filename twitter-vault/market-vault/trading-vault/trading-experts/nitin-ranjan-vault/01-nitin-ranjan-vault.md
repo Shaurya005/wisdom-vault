@@ -210,3 +210,14 @@ If you weren't able to make money in this rally or the year 2024, even after und
 https://youtu.be/kO4buLqXAmU?si=rwIrkC6H0xzjfTP1
 ```
 
+[Nifty Short](https://x.com/finallynitin/status/1960331949295202389)
+
+Shorted Nifty today twice.
+
+First trade hit SL, but the second one saved the day.
+
+Short trade #1  =  -1.2%
+Short trade #2 =  +2.4%
+--------------------
+Overall impact  =  +1.2%
+
