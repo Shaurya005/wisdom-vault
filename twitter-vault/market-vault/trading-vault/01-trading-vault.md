@@ -221,13 +221,12 @@ What's your 2x or 3x stock that you are still holding ?
 
 I used to think watching the market all day  gave me more control but now I know it just gives me more time to lie to myself. give me six hours staring at the screen and I’ll turn any chart into a reason to buy or sell.
 
-[LIQUIDITY FORCE indicator](https://x.com/iManasArora/status/1947887759852769599)
+[Book Recommendation](https://x.com/NickSchmidt_/status/1868789898750443822)
+Every trader should read these books.
 
-This is my new LIQUIDITY FORCE indicator. Combine it with BUYING FORCE and you can catch crazy moves in strong markets.
+What would you add?
 
-Used my own interpretation of it and caught #MCLOUD, #RHIM, #DATAMATICS to name a few
-
-Thanks @finallynitin
+![img_14.png](img_14.png)
 
 ## [Ameet Rai](https://x.com/AmeetRai_)
 [Mark Minervini’s Buy Rules](https://x.com/AmeetRai_/status/1864280933718696323)
@@ -377,3 +376,45 @@ Types of correction in market
 [The VCP](https://x.com/Stockeens/status/1959885328967176412)
 
 ![img_6.png](img_6.png)
+
+## [Vijay Marathe](https://x.com/Fintech00)
+[Exit First, Analyse Later](https://x.com/Fintech00/status/1879784719291998649)
+
+Despite of strong guidance and expansion
+#Yatharth is bleeding.
+
+Despite of strong guidance and good pace of sales growth
+#Kalyan is bleeding
+
+No one knows about the company beyong certain things
+
+Thats where stop loss comes into play.
+
+Exit first
+Analyse later
+
+## [Zafar Shaikh](https://x.com/InvesysCapital)
+
+[Index Death Cross](https://x.com/InvesysCapital/status/1877230246354665802)
+
+A potential #DeathCross on the #Nifty500 Index is developing & worth watching
+
+What is a Death Cross?
+
+A Death Cross occurs when the 50-day moving average (DMA) crosses below the 200-day moving average (DMA).
+
+On weekly charts, it's the 10-week moving average (WMA) crossing below the 40-week WMA.
+
+Historically, it has marked the transition from a bull market to a bear market
+
+Key Observations from History
+When it Matters: Particularly impactful after a strong overbought bull run.
+
+Outcomes: Such events led to long correction or consolidation phases, lasting anywhere from 37 weeks to 88 weeks.
+
+Exception: The only failure occurred in 2006, when markets continued their uptrend despite the signal.
+
+If the Death Cross is triggered investors should prepare for potential market headwinds.
+
+![img_13.png](img_13.png)
+

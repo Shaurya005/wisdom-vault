@@ -199,3 +199,14 @@ https://chartink.com/dashboard/284632
 ⦿ TRIVENI
 
 ![img.png](img.png)
+
+https://x.com/finallynitin/status/1870776940476739698
+
+The video is one of the finest. You’re a good trader & a good teacher. Rare combination. Hats off.
+
+```
+If you weren't able to make money in this rally or the year 2024, even after understanding the quality of a setup then these are the problems you need to fix 👇
+(This is not Part 2 of the Trading System Series, which will come in January)
+https://youtu.be/kO4buLqXAmU?si=rwIrkC6H0xzjfTP1
+```
+

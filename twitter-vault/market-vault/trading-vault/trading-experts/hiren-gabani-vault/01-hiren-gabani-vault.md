@@ -129,3 +129,13 @@ Happened this to me after a long time. Yes it hurts but also it’s part of this
 [Tennis ball action explained by @iManasArora 👏🙌](https://x.com/Hirengabani23/status/1945782167071801572)
 
 ![img_11.png](img_11.png)
+
+https://x.com/Hirengabani23/status/1866748242773545284
+
+Healthy rally?
+
+I don't think so.
+
+Reason👇
+
+![img_12.png](img_12.png)

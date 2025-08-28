@@ -165,3 +165,11 @@ To everyone thinking of becoming a Champion Trader and stepping into the world o
 Here is they way to do it professionally with longevity.
 
 Link: https://vvvlearn.com/post/how-to-become-a-champion-trader
+
+[Learn About Trading](https://x.com/VVVStockAnalyst/status/1849106956335919361)
+
+The best places to learn about Trading
+
+1. Books - Minnervini and O Neil
+2. Youtube videos of Kullamagie
+

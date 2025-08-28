@@ -67,3 +67,33 @@ Loving the experience so far! 😍
 
 90% problems of the retailers will get solved if they just start reading concalls of their portfolio companies and learn basic financial modeling and technical analysis.
 
+[Multibagger Stock](https://x.com/ChanderBhatia01/status/1835916760580514265)
+
+If you want 10,20 or 50 bagger stock-
+
+Be ready for deep research, huge drawdowns, volatility, and holding period of one to two decades.
+
+Life-changing outcomes don’t fall into your lap easily.
+
+[Interesting Data by Devina Mehra](https://x.com/ActusDei/status/1893505478807752767)
+
+Only 17 cos in the entire listed universe have grown their profits every year for the last 10 yrs. 
+If you look at 20 yrs, only 1 company has done it. There's no alternative to having a portfolio (multiple bets) - you don't know what will work. 
+Interesting study by @devinamehra
+
+## [Arvind Datta](https://x.com/datta_arvind/status/1873765177369538642)
+[Valuation Metrix](https://x.com/datta_arvind/status/1873765177369538642)
+
+I would evaluate on two other metrics
+
+2. Mcap to Sales.
+2. Mcap to CFO
+
+To get a better view if they are over valued or under valued
+PE doesn't give the right measure of valuation
+
+[Free Cashflow Basics](https://x.com/IFB_podcast/status/1886037856314896807)
+
+Free cash flow basics from Aswath Damodaran
+
+Hard to believe this is all free!

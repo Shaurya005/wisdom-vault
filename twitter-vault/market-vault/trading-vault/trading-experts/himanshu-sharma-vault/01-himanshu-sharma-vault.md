@@ -252,6 +252,51 @@ I came across @dayendtrader in 2022 and it has been a journey full of learning w
 
 Must see this interview. That’s years of refinement.
 
+https://x.com/_chartitude/status/1877761226769412266
+
+Appreciation post
+
+After I returned to India, I started teaching here as well and in the process came across brilliant sharp minds like
+@simatricks @igauranggandhi @VPA_trader @dayendtrader @TheChartKnight 
+@mukeshchauhan @Triyambak_CA @narang_gp @SailorTrader03
+
+and many more I can’t even recall all of them
+
+Most of them have been doing exceptionally well. Many I keep on learning from in some closed groups.
+
+[David Ryan Interview](https://x.com/_chartitude/status/1865732266153869677)
+
+1,379% Return in 3 years | Interview with David Ryan | 3X US Investing C... 
+https://youtu.be/ZK5cnVQ2V3Q?si=Vvcnci3aeDUu0V2D via @YouTube
+
+The only interview I have watched almost 5X
+By @TraderLion_
+Keep it simple
+
+https://x.com/_chartitude/status/1825306968984113352
+
+A great resource to learn
+
+Model Books
+
+```
+‼️ Study the biggest winners this weekend 🚨
+
+Model Books from the past 6 years from @TraderLion_👏
+
+2018
+https://traderlion.com/checkout-2018-traderlion-model-book/
+2019
+https://traderlion.com/checkout-2019-traderlion-model-book/
+2020
+https://traderlion.com/checkout-2020-traderlion-model-book/
+2021
+https://traderlion.com/checkout-2021-traderlion-model-book/
+2022
+https://traderlion.com/checkout-2022-traderlion-model-book/
+2023
+https://traderlion.com/checkout-2023-traderlion-model-book/
+```
 
 Recording available for the Free Webinar held on "CMT Examination" details
 

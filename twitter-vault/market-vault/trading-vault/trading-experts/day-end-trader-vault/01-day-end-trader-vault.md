@@ -93,3 +93,16 @@ So here goes...
 
 ![img_1.png](img_1.png)
 
+https://x.com/dayendtrader/status/1879373490236936259
+
+Complete price action course for free:
+
+In bull markets, days that open down usually rise to close positively.
+(Weakness is bought)
+
+In bear markets, days that open up usually fall to close negatively.
+(Strength is sold)
+
+Course complete.
+Thank you for tuning in. 🙏
+

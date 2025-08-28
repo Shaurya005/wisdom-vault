@@ -31,3 +31,11 @@ If you’re a swing trader, you can’t afford to take large losses. You’re ai
 
 This is how I think and this mindset shift removes the constant pressure we place on ourselves after every trade. And of course, only those who are not fully dependent on trading income can truly afford to think this way.
 #BroTip
+
+[LIQUIDITY FORCE indicator](https://x.com/iManasArora/status/1947887759852769599)
+
+This is my new LIQUIDITY FORCE indicator. Combine it with BUYING FORCE and you can catch crazy moves in strong markets.
+
+Used my own interpretation of it and caught #MCLOUD, #RHIM, #DATAMATICS to name a few
+
+Thanks @finallynitin
