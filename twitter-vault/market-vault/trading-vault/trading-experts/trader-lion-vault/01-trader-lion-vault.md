@@ -19,3 +19,9 @@ https://x.com/TraderLion_/status/1960366574939869449
 https://x.com/TraderLion_/status/1957467682959188277
 
 ![img_2.png](img_2.png)
+
+https://x.com/TraderLion_/status/1957467682959188277
+
+The top 10 lessons from Market Wizards by Jack Schwager
+
+![img_4.png](img_4.png)

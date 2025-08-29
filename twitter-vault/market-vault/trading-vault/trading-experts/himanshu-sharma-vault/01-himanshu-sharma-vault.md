@@ -298,13 +298,15 @@ https://traderlion.com/checkout-2022-traderlion-model-book/
 https://traderlion.com/checkout-2023-traderlion-model-book/
 ```
 
+[Free Webinar](https://x.com/thechartist26/status/1957405456646783099)
+
 Recording available for the Free Webinar held on "CMT Examination" details
 
 You can see it over here: http://chartitude.com >> Start Learning >> after signing up for it.
 
-<img width="789" height="225" alt="image" src="https://github.com/user-attachments/assets/2fd9cfe6-32ed-4d93-8b2b-7c979ce93bfe" />
+![img_3.png](img_3.png)
 
-
+[Faulty Base](https://x.com/thechartist26/status/1957067767795847483)
 
 Mark Minervini called this trade a faulty base.
 
@@ -312,4 +314,10 @@ Any idea why?
 
 And why I never posted about Anant Raj breakout
 
-<img width="951" height="378" alt="image" src="https://github.com/user-attachments/assets/6a1842ef-a12c-4e7e-9dcc-b2d8426315af" />
+![img_2.png](img_2.png)
+
+[Rajiv Thakkar Interview](https://x.com/ETMONEY/status/1957087899263861085)
+
+If you liked what you read, you can watch the entire podcast here:
+
+https://www.youtube.com/watch?v=A-0_hQ6CMpg

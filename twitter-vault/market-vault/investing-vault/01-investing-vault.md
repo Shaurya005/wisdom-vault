@@ -108,3 +108,23 @@ Hard to believe this is all free!
 
 A must watch podcast - https://youtube.com/watch?v=qgeQ5kMVwRA
 
+## [Vinay](https://x.com/ItsVinay01)
+[Best Market Discussion](https://x.com/ItsVinay01/status/1960991627117543908)
+
+One of the best discussion ever.
+
+It may have everything one needs for Markets.
+
+Great work @_soniashenoy
+
+Loved the discussion and even did a lot of Past winners tests to build an understanding.
+
+https://www.youtube.com/watch?v=9rTFDi7NjSg
+
+## [Ashish Kacholia](https://x.com/LuckyInvest_ARK)
+[Investing lessons from role models](https://x.com/LuckyInvest_ARK/status/1960930299455660531)
+
+Investing lessons from a legend and one of my role models from early days in market…very deep, witty and light hearted in equal measure
+
+How To BUILD WEALTH With Stock Market! | Ft. Vinod Sethi | KwK #211 https://youtu.be/N_7vYnskFG8?si=wJzpPm_3p5eUxuQD via @YouTube
+

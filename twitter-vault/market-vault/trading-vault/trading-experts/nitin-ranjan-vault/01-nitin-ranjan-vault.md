@@ -113,9 +113,7 @@ https://simplifyingtrading.my.canva.site
 
 https://x.com/finallynitin/status/1802511279351066980
 
-Links to all my scripts & scans mentioned in the Simplifying Trading YouTube session with
-@AnkurPatel59
-
+Links to all my scripts & scans mentioned in the Simplifying Trading YouTube session with @AnkurPatel59
 
 Scripts
 
@@ -220,4 +218,24 @@ Short trade #1  =  -1.2%
 Short trade #2 =  +2.4%
 --------------------
 Overall impact  =  +1.2%
+
+[Swing Trading](https://x.com/finallynitin/status/1954482540917518751)
+
+One of my AHA moments came a few months back, when one of my friends asked me this question:
+
+"Does swing trading frustrate you every now and then?" 🤔
+
+I casually wrote the reply with whatever instantaneously came to mind. But when I re-read it later, I just couldn’t stop myself from thinking about it for days. This was the answer:
+
+"No, swing trading doesn't frustrate me 'every now & then'.
+
+rather it 'satisfies' me every now & then;
+
+most other times it keeps me in a constant state of frustration." 🙈
+
+Since then, I've been sitting in cash, having realized that the least I can do is to not perform an inherently frustrating activity in a frustrating market environment.
+
+It's like playing chess against a monkey in a hurricane.
+
+![img_1.png](img_1.png)
 

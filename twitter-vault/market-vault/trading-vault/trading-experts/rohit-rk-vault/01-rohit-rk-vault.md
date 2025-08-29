@@ -183,3 +183,14 @@ The waiting game is something I have mastered and am very proud of. That was obt
 
 ![img_7.png](img_7.png)
 
+[Game of Probability](https://x.com/VVVStockAnalyst/status/1961000661291827551)
+
+Indices cracking below the 200MA today, was already just staying in cash since the last 45 + days majorly and I'm continuing to do the same.
+
+Stock Market is a game of probability, not a game of fancy setups and breakouts.
+
+If you are trying everyday, you really need to learn probability as a founding concept in Stock Trading
+
+![img_8.png](img_8.png)
+
+

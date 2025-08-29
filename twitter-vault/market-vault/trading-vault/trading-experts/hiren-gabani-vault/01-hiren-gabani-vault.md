@@ -149,3 +149,11 @@ Reason👇
 Wait for your pitch.
 
 ![img_13.png](img_13.png)
+
+[Manas Arora Tweets](https://x.com/Hirengabani23/status/1958487367192621486)
+
+💫This is getting crazy now. 1000+ comment🫣 Even twitter is not able to load comments now.
+
+I have tried my best to send drive link to most people. Those who didn’t get it, I’m sharing link below 👇
+
+Link: https://drive.google.com/drive/folders/1qw5MZw9Xkm17rU46s_7it9LP-GJc6dkX?usp=sharing

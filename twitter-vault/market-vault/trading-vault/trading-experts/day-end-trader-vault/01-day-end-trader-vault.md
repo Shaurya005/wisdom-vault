@@ -141,4 +141,34 @@ Do it now. Do it today. There can't be a more auspicious day to start something 
 
 Build yourself a Wall of Brilliance. 🧠
 
+[](https://x.com/dayendtrader/status/1956370801596215790)
+
+Check these dates:
+31st Dec was the last signal of 2024. But it failed and I barely came out at cost. (This is actually why I use my leaders WL. That time leaders weren't doing really well. Bottom bouncers were pushing things.)
+
+5th March and 18th March were the only days when the buy signal came and both worked well enough to justify entries. But I can tell you (with some retrospective bias of course) that 18th March was a much better entry.
+
+See where winners like Force motors and Krishana were on 18th March. Then see what the breadth was doing on 18th March.
+
+We are currently in the same zone as 31st Dec. Breadth is telling us that we are simply too oversold and hence trying to bounce. (Highly probable that it's a weak bounce)
+
+There is a difference between a bunch of weak men trying to push a car vs just 2-3 really strong guys doing the same thing.
+- The weak ones will slip, struggle and make the whole thing look like a nightmare.
+- The strong ones will make the execution look beautiful and smooth. Like a work of art.
+
+To conclude:
+As I mentioned in the talk, looking at breadth alone will misguide you. It will keep telling you that I am going up. Because breadth is blind. She doesn't know WHO is pushing her. But we aren't blind, so we have to see that.
+
+It's not just the story. It is about WHO is telling it.
+
+A great storyteller will make the Thirsty Crow sound wonderful, while an average one will make even The Great Gatsby feel like a drag!
+```
+@dayendtrader
+Saw this video. It is amazing. Can you pls share how your system performed during Jan-Mar’25? Just want to know number of times it gave entry and if there was DD during those entries (if any). Thanks 🙏🏻
+```
+
+
+
+
+
 

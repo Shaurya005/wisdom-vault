@@ -242,56 +242,6 @@ If it was just a shakeout, then the leaders that we see with big hammer candles 
 
 ![img_16.png](img_16.png)
 
-
-## [Ameet Rai](https://x.com/AmeetRai_)
-[Mark Minervini’s Buy Rules](https://x.com/AmeetRai_/status/1864280933718696323)
-
-Mark Minervini’s Buy Rules
-
-1. Stock price above 150-day and 200-day moving averages.
-2. 150-day moving average above the 200-day moving average.
-3. 200-day moving average trending upward for at least 1 month, preferably 4-5 months.
-4. Stock price trading above the 50-day moving average.
-5. Current price at least 25% above the 52-week low.
-   6.Current price within 25% of the 52-week high.
-   7.Relative Strength (RS) ranking no less than 70, preferably in the 90s.
-   http://8.RS line in an uptrend for at least 6 weeks, preferably 13 weeks.
-   9.Breakouts occur from well-formed base structures (cup, cup-with-handle, flat base).
-   10.Breakout occurs with volume at least 50%-100% higher than average.
-   11.Wide price spread and strong close on breakout day.
-   12.Accelerating earnings growth, preferably 50%-100% or more.
-   13.Consistent revenue growth of 20%-50%.
-   14.Increasing institutional sponsorship.
-   15.Presence of a clear growth catalyst.
-   16.Low float (under 30 million shares).
-   17.Volume heavier on up days and lighter on pullbacks.
-   http://18.No falling earnings or deteriorating fundamentals.
-   19.Cheat entry points allowed near base completion.
-   20.Favorable reward-to-risk ratio (e.g., 3:1 or better).
-   21.Trades align with broader market uptrends.
-
-
-[Position Sizing Late In Trend](https://x.com/AmeetRai_/status/1947409884569604264)
-
-Make sure your position sizing late in the trend is always smaller than what it would be early in the cycle.
-
-A lot of traders mess this up — they go big when everything’s flying, thinking they’ve got the Midas touch, only to round-trip gains or worse.
-
-Euphoria kicks in, the market feels “easy,” and they size up just as risk is actually increasing.
-
-The right approach?
-
-Size heavy early in the cycle when the risk/reward is most favorable.
-Scale back late, when the gains have already played out and the easy money’s behind.
-
-This is where traders who’ve made progress end up giving a big chunk back — not because their picks were bad, but because their sizing didn’t match the phase of the market.
-
-So as we push deeper into this markup phase, be aware of where we are in the cycle.
-
-Don’t confuse momentum for opportunity this late in the cycle.
-
-The smart money was in early.
-
 [BrkoutGeek](https://x.com/BrkoutGeek)
 [How to Become Best in Trading](https://x.com/BrkoutGeek/status/1952646436618645764)
 
@@ -460,4 +410,18 @@ Master these traits & spotting quality setups gets simple🥂
 https://drive.google.com/file/d/1HSu8rHoW7n_vHKZBmw7BAA9VTnjOTKaS/view?usp=drivesdk
 
 Follow @mohitrai55 for more research-driven breakdowns & trading insights 🔥
+
+## [Rahul Punia](https://x.com/itrendfollower)
+[Earnings EP](https://x.com/itrendfollower/status/1956761962290831499)
+
+I’ve done deep dives on the biggest winners, IPO bases, news-driven big movers, and Earnings EP.
+If you ask me which one stands out, my answer is clear go for "Earnings EP."
+
+It’s been a game changer for me, working like a charm even in this choppy market. 
+
+All credit goes to @PradeepBonde @prabhakarkudva @Qullamaggie
+
+Thanks, Pradeep, for introducing this concept to the trading community.
+
+
 

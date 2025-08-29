@@ -42,3 +42,10 @@ Make these habits. Say no to everything else.
 Avoid debt, jail, addiction, disgrace, shortcuts, and media.
 
 Relax. Victory is assured.
+
+
+https://x.com/UmarAshraf/status/1957109481923371114
+
+One of the best pieces of advice.
+
+![img.png](img.png)

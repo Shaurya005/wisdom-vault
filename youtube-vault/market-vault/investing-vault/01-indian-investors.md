@@ -8,6 +8,8 @@
 
 [![Video Title](https://img.youtube.com/vi/hrn8n0JmH1g/0.jpg)](https://www.youtube.com/watch?v=hrn8n0JmH1g)
 
+[![Video Title](https://img.youtube.com/vi/Te45zkVZPsQ/0.jpg)](https://www.youtube.com/watch?v=Te45zkVZPsQ)
+
 # Kirtan Shah
 
 [![Video Title](https://img.youtube.com/vi/vzD6BXAjgvw/0.jpg)](https://www.youtube.com/watch?v=vzD6BXAjgvw)
@@ -42,3 +44,19 @@
 
 [![Video Title](https://img.youtube.com/vi/9rTFDi7NjSg/0.jpg)](https://www.youtube.com/watch?v=9rTFDi7NjSg)
 
+
+# Rajiv Khanna H/O Dolly Khanna
+
+[![Video Title](https://img.youtube.com/vi/Zv7CMnw2u2g/0.jpg)](https://www.youtube.com/watch?v=Zv7CMnw2u2g)
+
+# Kuntal Shah
+
+[![Video Title](https://img.youtube.com/vi/IkSedJ52ZzU/0.jpg)](https://www.youtube.com/watch?v=IkSedJ52ZzU)
+
+# Mohnish Pabrai
+
+[![Video Title](https://img.youtube.com/vi/MZ9JD-3o6FY/0.jpg)](https://www.youtube.com/watch?v=MZ9JD-3o6FY)
+
+# Rajeev Thakkar
+
+[![Video Title](https://img.youtube.com/vi/A-0_hQ6CMpg/0.jpg)](https://www.youtube.com/watch?v=A-0_hQ6CMpg)
