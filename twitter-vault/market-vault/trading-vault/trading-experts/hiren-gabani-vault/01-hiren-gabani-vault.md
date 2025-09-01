@@ -157,3 +157,11 @@ Wait for your pitch.
 I have tried my best to send drive link to most people. Those who didn’t get it, I’m sharing link below 👇
 
 Link: https://drive.google.com/drive/folders/1qw5MZw9Xkm17rU46s_7it9LP-GJc6dkX?usp=sharing
+
+[Broader Market Sentiment](https://x.com/Hirengabani23/status/1961672345224872216)
+
+"Three out of four stocks dance to the market's tune—master the market's rhythm, and your investments will follow the beat." — William J. O'Neil
+
+"The choice is yours: either protect your financial and mental capital by staying on the sidelines when the odds are not in your favor, or continue accumulating drawdowns by trading breakouts in a weak market."
+
+![img_14.png](img_14.png)

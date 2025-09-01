@@ -84,3 +84,7 @@ These 10 rules are how pros separate winners from the noise.
 [#Trading](https://x.com/AnkurPatel59/status/1960916192928870657)
 
 ![img_10.png](img_10.png)
+
+[#IPOBASE](https://x.com/AnkurPatel59/status/1961370854744600918)
+
+![img_11.png](img_11.png)

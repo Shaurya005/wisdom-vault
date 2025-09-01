@@ -202,29 +202,19 @@ I am writing again the list of books that one should read as a beginner in tradi
 @InvestmentBook1 might share the link with you for them.
 
 1. How I made 2,000,000$ in the Market by Nicolas Darvas - any cover you find on Amazon is ok. This book covers the basics, so you'll need to read it multiple times.
-
 2. You can still make it in the market by Nicolas Darvas - here, he will explain in detail his concepts.
-
 3. How to Make Money in Stocks - William O Neil
-
 4. Trade Like a Stock Market Wizard by Mark Minervini
-
 5. Thing and Trade Like a Champion by Mark Minervini
-
 6. Secrets for Profiting in Bull & Bear Markets by Stan Weinstein
-
 7. Two books on Jessie Livermore
 
 Reminiscences of a Stock Operator
 How to Trade in Stocks
 
-
-In 2022
-
-I wrote a blog on Substack mentioning all the books
+In 2022 I wrote a blog on Substack mentioning all the books
 
 https://open.substack.com/pub/thechartist/p/books-recommendations?r=tv3fh&utm_medium=ios
-
 
 [Past trades of Mark Minervini](https://x.com/thechartist26/status/1950814421032575015)
 
@@ -261,7 +251,6 @@ After I returned to India, I started teaching here as well and in the process ca
 @mukeshchauhan @Triyambak_CA @narang_gp @SailorTrader03
 
 and many more I can’t even recall all of them
-
 Most of them have been doing exceptionally well. Many I keep on learning from in some closed groups.
 
 [David Ryan Interview](https://x.com/_chartitude/status/1865732266153869677)
@@ -269,8 +258,7 @@ Most of them have been doing exceptionally well. Many I keep on learning from in
 1,379% Return in 3 years | Interview with David Ryan | 3X US Investing C... 
 https://youtu.be/ZK5cnVQ2V3Q?si=Vvcnci3aeDUu0V2D via @YouTube
 
-The only interview I have watched almost 5X
-By @TraderLion_
+The only interview I have watched almost 5X By @TraderLion_
 Keep it simple
 
 https://x.com/_chartitude/status/1825306968984113352
@@ -309,15 +297,19 @@ You can see it over here: http://chartitude.com >> Start Learning >> after signi
 [Faulty Base](https://x.com/thechartist26/status/1957067767795847483)
 
 Mark Minervini called this trade a faulty base.
-
 Any idea why?
-
 And why I never posted about Anant Raj breakout
 
 ![img_2.png](img_2.png)
 
-[Rajiv Thakkar Interview](https://x.com/ETMONEY/status/1957087899263861085)
+https://x.com/thechartist26/status/1961248620331839695
 
-If you liked what you read, you can watch the entire podcast here:
+This one feature by @Tijori1 gives me a quick summary of the entire sector by reading a few concalls
 
-https://www.youtube.com/watch?v=A-0_hQ6CMpg
+![img_4.png](img_4.png)
+
+[Risk Management Class](https://x.com/thechartist26/status/1961061091406143845)
+
+Just in case you are new to following me:
+
+I have a free class on Risk Management on my website.

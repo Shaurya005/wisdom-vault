@@ -7,7 +7,9 @@
 
 You're chasing the perfect scan. I’m chasing something else.
 
-Scans are not my real edge. I have made money from stocks hitting 52-week highs, 52-week lows, one-month highs, and even from random names that never showed up in scans. So do not get lost in scanning alone. What really matters is building a focused list of no more than 10 to 20 names. These names should have liquidity, speed, clean consolidations, and a history of big moves. That focus list is where your edge will come from.
+Scans are not my real edge. I have made money from stocks hitting 52-week highs, 52-week lows, one-month highs, and even from random names that never showed up in scans. 
+So do not get lost in scanning alone. What really matters is building a focused list of no more than 10 to 20 names. 
+These names should have liquidity, speed, clean consolidations, and a history of big moves. That focus list is where your edge will come from.
 #BroTip
 
 
@@ -15,7 +17,8 @@ Scans are not my real edge. I have made money from stocks hitting 52-week highs,
 
 People often ask, “Why do you share your strategy? Won’t too many people following it kill your edge?”
 
-Simple answer: 9 out of 10 never learn. And out of the ones who do sign up to learn, 9 out of 10 never put in the grind needed in the early days. That’s why the edge stays alive and kicking. Because let’s face it - human nature hasn’t changed. The lazy and the procrastinators will always outnumber the action-takers.
+Simple answer: 9 out of 10 never learn. And out of the ones who do sign up to learn, 9 out of 10 never put in the grind needed in the early days. 
+That’s why the edge stays alive and kicking. Because let’s face it - human nature hasn’t changed. The lazy and the procrastinators will always outnumber the action-takers.
 
 So no, my edge isn’t going anywhere like it hasn't in the last many years. It’s protected by the greatest moat of all time - human laziness.
 #BroTip
@@ -23,13 +26,15 @@ So no, my edge isn’t going anywhere like it hasn't in the last many years. It�
 
 [Cutting Losses](https://x.com/iManasArora/status/1909201242011639830)
 
-If you’re a swing trader, you can’t afford to take large losses. You’re aiming for 20–40% moves, so there’s no way you can hold onto a stock that’s down 20% from your entry price. If this sounds like you, the first change you need to make is to start cutting your losses at 2–4%.
+If you’re a swing trader, you can’t afford to take large losses. You’re aiming for 20–40% moves, so there’s no way you can hold onto a stock that’s down 20% from your entry price. 
+If this sounds like you, the first change you need to make is to start cutting your losses at 2–4%.
 
 [Win Rate](https://x.com/iManasArora/status/1948655787179380970)
 
 “My win rate is 30 percent, and I make money year on year not trade by trade, week by week, or month by month.”
 
-This is how I think and this mindset shift removes the constant pressure we place on ourselves after every trade. And of course, only those who are not fully dependent on trading income can truly afford to think this way.
+This is how I think and this mindset shift removes the constant pressure we place on ourselves after every trade. 
+And of course, only those who are not fully dependent on trading income can truly afford to think this way.
 #BroTip
 
 [LIQUIDITY FORCE indicator](https://x.com/iManasArora/status/1947887759852769599)
@@ -42,7 +47,9 @@ Thanks @finallynitin
 
 [First touch to the 20MA or 50MA](https://x.com/iManasArora/status/1960718632083714526)
 
-The first touch to the 20MA or 50MA after a stock has had a strong move is often an easy money trade. But remember, first touch does not mean you buy the moment the stock touches the moving average. What you do is put such names into your focus list, observe closely, and then strike with a setup you trust whether it is SVRO, VCP, or any other buying system you follow.
+The first touch to the 20MA or 50MA after a stock has had a strong move is often an easy money trade. 
+But remember, first touch does not mean you buy the moment the stock touches the moving average. 
+What you do is put such names into your focus list, observe closely, and then strike with a setup you trust whether it is SVRO, VCP, or any other buying system you follow.
 
 Master this one set-up alone. You don't need any course.
 #BroTip
@@ -50,6 +57,7 @@ Master this one set-up alone. You don't need any course.
 ![img.png](img.png)
 
 [How to trade BIG one day?](https://x.com/agarwaltarun28/status/1960603661928947749)
+
 #BroTip
 
 ![img_1.png](img_1.png)
@@ -66,3 +74,17 @@ RS behaviour to the index
 Manas bhai, is there any particular template or checklist to follow while doing deep dives of past winners?
 ```
 
+[Video Podcasts](https://x.com/iManasArora/status/1961323938870345764)
+
+These 3 videos contain answers to many of the questions I am asked often.
+
+```
+These three videos, spaced about three years apart, show just one thing , I keep doing the same setup again and again to make money. No fancy tricks, no constant new reinvention.
+
+2023: https://tr.ee/xPwartb2Py
+2025: https://tr.ee/9gUj2lIy7g
+2025: https://tr.ee/HbGph9NUFS
+
+If you're serious about learning, take out time to watch them before placing any real trade.
+#BroTip
+```

@@ -83,6 +83,16 @@ Mohnish Pabrai. The surprising truth about doing less and achieving more. Worth 
 
 https://www.youtube.com/watch?v=MZ9JD-3o6FY
 
+[Rajiv Thakkar Interview](https://x.com/ETMONEY/status/1957087899263861085)
+
+If you liked what you read, you can watch the entire podcast here:
+https://www.youtube.com/watch?v=A-0_hQ6CMpg
+
+https://x.com/Stockeens/status/1961674016017846727
+
+10 Lessons from Mark Minervini
+
+![img_20.png](img_20.png)
 
 
 
