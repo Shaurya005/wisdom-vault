@@ -25,3 +25,13 @@ https://x.com/TraderLion_/status/1957467682959188277
 The top 10 lessons from Market Wizards by Jack Schwager
 
 ![img_4.png](img_4.png)
+
+[Stan Weinstein System](https://x.com/TraderLion_/status/1966458332408844735)
+
+Decades later, traders still follow Stan Weinstein.
+
+His system is simple, repeatable, and still works today.
+
+Here is his blueprint:
+
+![img_5.png](img_5.png)

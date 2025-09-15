@@ -59,3 +59,7 @@
 # Rajeev Thakkar
 
 [![Video Title](https://img.youtube.com/vi/A-0_hQ6CMpg/0.jpg)](https://www.youtube.com/watch?v=A-0_hQ6CMpg)
+
+## Maneesh Dangi
+
+[![Video Title](https://img.youtube.com/vi/omvUflegajw/0.jpg)](https://www.youtube.com/watch?v=omvUflegajw)

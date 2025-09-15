@@ -116,3 +116,61 @@ Investing lessons from a legend and one of my role models from early days in mar
 
 How To BUILD WEALTH With Stock Market! | Ft. Vinod Sethi | KwK #211 https://youtu.be/N_7vYnskFG8?si=wJzpPm_3p5eUxuQD via @YouTube
 
+## [Pankaj Parekh](https://x.com/DhanValue)
+[IPO Allotment Process](https://x.com/DhanValue/status/1964525373456339294)
+
+IPO Allotment Demystified:
+How Shares Are Actually Distributed Among Investors
+From oversubscription to lucky draws — here’s how the process really works.
+
+Source: Businessline
+
+![img.png](img.png)
+
+## [Suresh](https://x.com/SureshKBN)
+[Other Income](https://x.com/SureshKBN/status/1963994177232056740)
+
+Screener P/E can mislead.
+One big ‘other income’ & P/E looks cheap.
+Exclude it & valuation doubles.
+For examine Izmo
+
+Sometimes P/E looks inflated due to one-off losses  but core business is strong.
+Always check operating earnings, not just reported EPS
+
+Any examples ?? 😊
+
+## [Smart Sync Services](https://x.com/SmartSyncServ)
+[The most important thing illuminated](https://x.com/SmartSyncServ/status/1963618982952370386)
+
+"A great place to look for bargains is on the pile of things other people won’t touch, because, by definition, their prices embody no optimism."
+
+~Howard Marks
+
+```
+Ignored by many, obvious with common sense, that’s where undervalued opportunities hide. 
+
+Read it twice👇
+```
+
+![img_1.png](img_1.png)
+![img_2.png](img_2.png)
+
+
+[Style Drift in Investing](https://x.com/ishmohit1/status/1966561554100613369)
+
+Late Night Learnings before going to sleep: Style Drift
+
+Investors often get frustrated when their preferred style of investing stops working. This isn’t unusual—it’s something that happens across cycles.
+
+Take bottoms-up investing for example-  An investor may identify multiple leaders in small caps showing strong PAT growth. This framework tends to work well over time. But there inevitably comes a phase when large caps—with slower growth—start outperforming, driven largely by flows and fund hoarding.
+
+In such phases, I’ve noticed many investors drift from their original style. They chase performance, even if it means buying companies at ₹3–4 lakh crore+ market caps—far from where they began.
+
+The reality is: bottoms-up investing comes with lumpy returns. Between 2018 and 2019, there was a 14-month stretch when many quality businesses moved sideways. Those same businesses became super-winners from late 2019 to 2021.
+
+Yet, many who de-boarded the train during the lull never managed to get back on.
+
+The lesson is simple—stick to your process of finding good businesses at reasonable valuations. As a retail investor, time is your biggest advantage. You don’t have to deal with institutional constraints or the pressure of publishing a NAV every day.
+
+Avoid style drift. Stay flexible within your process. That discipline is what ultimately creates convexity in investing...

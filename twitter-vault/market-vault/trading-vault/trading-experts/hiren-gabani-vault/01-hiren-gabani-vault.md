@@ -165,3 +165,59 @@ Link: https://drive.google.com/drive/folders/1qw5MZw9Xkm17rU46s_7it9LP-GJc6dkX?u
 "The choice is yours: either protect your financial and mental capital by staying on the sidelines when the odds are not in your favor, or continue accumulating drawdowns by trading breakouts in a weak market."
 
 ![img_14.png](img_14.png)
+
+[Stock Changes Nature](https://x.com/Hirengabani23/status/1964199864893407342)
+
+💫Many people ask me, "Why don't you remove choppy stocks from the list and focus only on clean stocks? That way, you have to go through fewer stocks during scanning."
+
+✅My answer: Don't make a mistake. A stock can change its nature at any time. If you remove those stocks from the list, you may miss big opportunities. Go with the flow.
+
+Few examples👇
+
+![img_15.png](img_15.png)
+![img_16.png](img_16.png)
+![img_17.png](img_17.png)
+
+
+[Trade Clean Setup](https://x.com/Hirengabani23/status/1966720165661602068)
+
+💫Smooth-moving and linear stocks chop you up less than choppy or slow-moving stocks.
+
+✅Because if your stop-loss hits in a linear and smooth stock, it doesn't hurt much as you traded one of the best stock out there. But if it hits in a choppy stock, it hurts you both financially and mentally.
+
+✅Be very, very selective. If you don't find a clean setup, don't trade. That's it.
+
+[Marios Stamatoudis Interview](https://x.com/Hirengabani23/status/1966495803696115891)
+
+✅This is one of the best YouTube interview on swing trading I've ever seen. @stamatoudism
+breaks it all down super clearly and in tons of detail.
+
+✅Check it out—you'll learn a lot and find it really useful.
+
+Video link: https://youtu.be/7UfHg8PpDZk?si=1jmtZRajejtHQ5kt
+
+[Not Trading Downside Bases](https://x.com/Hirengabani23/status/1965679961693729024)
+
+💫The day I stopped trading downside bases, I began performing well in the market.
+
+✅The goal isn't to buy at a low price, but to buy at the right price.
+
+![img_18.png](img_18.png)
+![img_19.png](img_19.png)
+![img_20.png](img_20.png)
+![img_21.png](img_21.png)
+
+```
+The basic premise of VCP is that supply is absorbed.
+
+Beginners who focuses on patterns, indicators or setups can't have first principle thinking
+
+VCP can't work in Stage-1 or Stage-4 stocks with huge overhead supply.
+```
+```
+The basic criteria to avoid these stocks is 
+1) 50 Ema > 200 Ema 
+2) Price > 200 Ema
+
+It helps me a lot
+```

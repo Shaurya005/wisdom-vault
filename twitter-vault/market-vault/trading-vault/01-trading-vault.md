@@ -113,6 +113,33 @@ Catalyst : Imperial Blue brand acquisition
 
 ![img.png](img.png)
 
+https://x.com/chartians/status/1665680226909835264
+
+The Indian markets need a power packed product like the TC2000.
+
+We pay separately for charts
+Separately for Intraday data
+Separately for live market softwares
+Separately for scans
+Separately for EOD scans
+
+There is not a single product that offers one stop solution like the #TC2000
+
+Do you have any such software that you use ?
+
+https://x.com/chartians/status/1964962249434616149
+
+If you have studied past winners, NSDL is doing almost a replica of 2 setups.
+
+#AWL in 2022
+#IREDA in 2024
+
+Similar IPO bases and tightness near highs
+
+https://x.com/chartians/status/1964976757821542564
+
+Not necessary for stocks. Stocks show urgency via gaps, if they get filled then the urgency is over !
+
 
 ## [Ravi Sharma](https://x.com/StocksNerd)
 [Demand/Supply zones](https://x.com/StocksNerd/status/1933029111561130200)
@@ -306,6 +333,10 @@ If you're nothing without trading, you haven't understood trading at all:
 
 ![img_5.png](img_5.png)
 
+[The Boredom Trap: Why Trading for Action Destroys Accounts 👇](https://x.com/BlogJulianKomar/status/1966538554722373682)
+
+![img_27.png](img_27.png)
+
 ## [Sakatas Homma](https://x.com/SakatasHomma)
 [Sakatas Homma Articles](https://x.com/SakatasHomma/status/1947722876779483576)
 
@@ -423,5 +454,133 @@ All credit goes to @PradeepBonde @prabhakarkudva @Qullamaggie
 
 Thanks, Pradeep, for introducing this concept to the trading community.
 
+## [CA Arpit Goyal](https://x.com/Arpit1223)
+[Trading Setups](https://x.com/Arpit1223/status/1963890864960225481)
 
+Train your eyes to spot setups like this.
+
+Don't fall in the race of getting most early entry,  people trying that are currently out of the market.
+
+![img_21.png](img_21.png)
+
+## [Nich Schmidt](https://x.com/NickSchmidt_)
+[(https://x.com/NickSchmidt_/status/1964131045067849741)
+
+My biggest breakthrough wasn’t learning anything new. It was realizing I already knew enough I was just sabotaging myself with unnecessary stuff. I was doing too much and adding complexity when I just had to do less.
+
+[#1: Moving Averages.](https://x.com/RebellioMarket/status/1963287240521527609)
+
+![img_22.png](img_22.png)
+
+## [Mystocks](https://x.com/mystocks_in/)
+(https://x.com/mystocks_in/status/1962097896335331539)
+
+📈If market recover then we this stocks is in priority
+bookmark this so you don't to search again and for study. 👇
+
+Priority
+Denta Water |  Stallion | Nsdl | endurance | Ssegl
+
+secondary
+Acutaas Chemical | Hindware | Vimta Labs | Usha Martin | Nava | Rossell techsys | Jeena Sikho | diffusion | Avl | Godfrey
+
+Fno - Kaynes |  Ab Capital | Cipla | L&T Finance | Dixon
+
+https://x.com/SakatasHomma/status/1964951616433582559
+
+Ather Energy:
+
+As a pozitional + breakout trader,
+Homma Khela Hobe's work well.
+
+As choopy stock, PBCs were there as well.
+
+Today another Small Base TBO entry as well.
+
+Have an arsenal that contains all kinds of entry techniques. It will only enhance your trading.
+
+![img_24.png](img_24.png)
+![img_25.png](img_25.png)
+
+https://x.com/SakatasHomma/status/1964951616433582559
+
+```
+Homma Khela Hobe is updated realtime on my website for FREE. Link in bio
+```
+
+![img_23.png](img_23.png)
+
+## [Buy Before Breakout](https://x.com/VCPSwing)
+
+[Earning Table Indicator](https://x.com/VCPSwing/status/1963222728246215156)
+
+Every time I post charts, I get asked about that table 👀
+It’s my Earnings Table Indicator — packed with:
+• Daily & Weekly MAs
+• ADR & ATR
+• Bull Snort
+• Extensions, Inside Bars, Mini Coils & more
+
+✅ Fully customizable 💯 Completely FREE
+
+I built it for the community. Share so it reaches the right traders 🙌
+
+Trading View Indicator: [https://tradingview.com/script/lOyrYoOX-Quaterly-Earnings-Sectors-Industry-Moving-Averages/]
+
+![img_26.png](img_26.png)
+
+[Francesco](https://x.com/FranVezz/status/1966591027160002851)
+
+In his @chatwithtraders interview, @Qullamaggie said he grew tired day trading because you're always so close to the danger point - your entry, and your stop.
+
+He loved the freedom of not being at the screen all day, watching every tick. Building cushion, trimming, trailing.
+
+I started as a day trader an experienced the exact same evolution. To me, this is the beauty of being a swing trader.
+
+Took mom to lunch today with my wife and son. Living life, whilst doing what I love. Priceless.
+
+
+[Jeff Sun, CFTe](https://x.com/jfsrev/status/1966511757910032579)
+
+If you’ve accepted that your win rate will often be below 35% in most months, the only way to consistently finish positive on those months is by having a non-discretionary sell rule to hold onto your winning trades for as long as possible, while also cutting losing trades within a limited -R as soon as possible.
+
+Be patient with the factor of time on winning trades that are very far from your average price. Remember, a chart has both a y-axis and an x-axis, don't be fixated on wanting the upward price movement every single day, it doesn't happen, at least most of the time.
+
+You can always sell some into strength to cushion the anxiety of any potential unrealized profit loss, that's the most beautiful thing about holding them.
+
+```
+Buying is relatively easy because you can find tight spots to manage risk, selling into strength is slightly tough but doable as you can sell some at multiple of your R like 2,3,4 
+but holding a piece for larger move and trusting extensions or 10MA rule , now that's a whole another level of skill - not conceptually but emotionally cause you see your open P/L, you are feeling excited, 
+you are anxious you don't want to give back too much, but this is where you make up for 10-25 losses at once or more , just by trusting the process - TY for sharing in real time Jeff!
+```
+
+[SL getting hit](https://x.com/ItsVinay01/status/1965802504236728338)
+
+Why are my trades not working when indices looking strong?
+
+Breadth is strong but my SL getting hit?
+
+How to approach current environments ?
+
+Here is a One stop answer to all the problems 👇👇
+
+
+[21 EMA Range](https://x.com/PrimeTrading_/status/1966318533798764975)
+
+This is a script we developed and shared for free to give that moving average more context and flexibility, I use a 21-day EMA structure, built from the lows, highs, and closing prices.
+
+This creates a dynamic zone — not just a single line — that helps me visualize trend, momentum, and risk. It gives enough room for natural volatility, while still keeping me anchored to the trend.
+
+Here's the code if you want. Cheers!
+
+https://traderslab.gitbook.io/primetrading/tools/21dma-structure-tv-script
+
+![img_28.png](img_28.png)
+
+
+[SME Manipulation by Flippers](https://x.com/srir54/status/1966134056770572549)
+
+#sugslloyd one flipper has 5 lakh position and another now has 5 lakh position
+
+![img_29.png](img_29.png)
 

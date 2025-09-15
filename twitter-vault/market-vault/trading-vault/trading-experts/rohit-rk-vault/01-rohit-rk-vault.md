@@ -193,4 +193,71 @@ If you are trying everyday, you really need to learn probability as a founding c
 
 ![img_8.png](img_8.png)
 
+[Prior Strong Uptrend](https://x.com/VVVStockAnalyst/status/1963891630408106160)
+
+4 Positions Open today and what is common with everything.
+
+Prior Strong Uptrend.
+
+Even if 1000 people say me to look at stocks in a downtrend, I'll ignore all of them and only look at stocks in a prior uptrend.
+
+Winning Formula
+
+![img_9.png](img_9.png)
+
+The Weekly charts of each of the above trade looks like this.
+
+![img_10.png](img_10.png)
+
+[Free CTMP Lecture](https://x.com/VVVStockAnalyst/status/1963586331956633738)
+
+🚨Announcement
+
+You can now watch the First lecture of CTMP 2025 as a free TRIAL where you will learn about the Journey to successful Swing Trading, Concept of Candle Sticks & Closing
+
+A 2 hour power-packed session at http://vvvlearn.com
+
+Signup -> CTMP 2025 -> Click Start FREE Trial
+
+You can watch in EDGE browser - Windows & Safari Browser in Mac.
+
+![img_11.png](img_11.png)
+
+
+[Equiallocation on sectoral stocks](https://x.com/VVVStockAnalyst/status/1966369455803609588)
+
+Went Equiallocation on few Large Cap Defence names.
+
+4 names with 4% allocation each. Thematic Swing trading begins.
+
+Disc: This is not a Buy/Sell Recomendation, If you copy my trades, you will lose your money.
+
+![img_12.png](img_12.png)
+
+Position Sizing here. 4% each name Equiallocation
+
+![img_13.png](img_13.png)
+
+```
+Whenever a sector moves, I never try to be oversmart only attempting one name. I pick a basket as usual among the good names. 
+That's how i have been a part of most strong rallies without being left out !
+```
+
+[Don't Read Too Many Books](https://x.com/VVVStockAnalyst/status/1966391998476411288)
+
+To anyone asking me for resources to become a Champion Swing Trader - Here you go.
+
+Don't read too many books and confuse yourself. Read Mark Minnervini & O Neil books. That's more than enough.
+
+Then take all the winners of the Indian Market in the last 5 years and study every move in depth and take notes.
+
+You will learn so much more from this activity rather than expanding your reading in books.
+
+
+[Low Free Float Easily Manipulated](https://x.com/VVVStockAnalyst/status/1964943263724638520)
+
+To the many talking about KIOCL, I absolutely will not touch such stocks. It feels fully manipulated to me all the time it breakouts.
+
+It has a MCAP of 20000Cr. which makes people feel its a large stocks but it has a mere "200 Cr" Free float which is why it moves erratically when people post about it. 
+That's a kind of stock that can be moved by a gang of retail and i feel Institutions dont even come there for long run,its just volume based entries and scalping
 

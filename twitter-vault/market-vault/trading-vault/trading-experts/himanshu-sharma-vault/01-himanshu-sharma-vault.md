@@ -313,3 +313,63 @@ This one feature by @Tijori1 gives me a quick summary of the entire sector by re
 Just in case you are new to following me:
 
 I have a free class on Risk Management on my website.
+
+[Trading Rules](https://x.com/thechartist26/status/1964246135712969000)
+
+Max trades 8
+%risk 0.5% to 1
+Risk reward minimum aim 5
+Yearly return - no expectation
+```
+Pls Answer these
+1. How many trades are generally open at one point of time?
+2. In each trade how much % of portfolio risk do you take?
+3.Minimum risk reward you keep?
+4.What’s your yearly returns target?
+5.What’s your avg holding period?
+```
+
+[Module of Course](https://x.com/thechartist26/status/1963471121195696370)
+
+This is just one slide of what I teach in the module
+
+![img_5.png](img_5.png)
+
+[Trade the price](https://x.com/thechartist26/status/1963464990683529299)
+
+Just one message: Trade the price & not the news
+
+Price and volume is the only truth and that makes money
+
+[Categories of breakouts](https://x.com/thechartist26/status/1966741149470912938)
+
+Written a short and crisp blog on
+
+Categories of breakouts and which one I prefer to hold
+
+http://chartitude.com
+
+Newsletter No 86 is uploaded now
+
+![img_6.png](img_6.png)
+
+[Filtering Tools](https://x.com/thechartist26/status/1965387708056174896)
+
+ChartsMaze and Market Smith India
+
+```
+Which site do you use for filtering stocks.. you have mentioned before ... Forgot to note down...
+```
+
+[Gap Filling Process](https://x.com/thechartist26/status/1965266943268749789)
+
+Gap filling is a two-step process
+
+Merely closing is the first step. the next is to have a strong follow-through which IOLCP is doing now
+
+But that Gap filled 3 times. Are we taking it that every BO attempt makes the resistance weaker?
+
+[Dan Zanger Free Charts](https://x.com/thechartist26/status/1964920916678426651)
+
+To those asking me where to find the Dan Zanger's letters - I bet 99% of them haven't even gone through his FREE charts posted on his X handle.
+@DanZanger
