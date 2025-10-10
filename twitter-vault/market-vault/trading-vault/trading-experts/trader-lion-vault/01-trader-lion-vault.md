@@ -35,3 +35,9 @@ His system is simple, repeatable, and still works today.
 Here is his blueprint:
 
 ![img_5.png](img_5.png)
+
+https://x.com/TraderLion_/status/1973736592885030974
+
+William O'Neil's studies show finding winning stocks is easier when you filter by group strength first.
+
+![img_6.png](img_6.png)

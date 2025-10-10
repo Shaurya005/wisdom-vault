@@ -221,3 +221,33 @@ The basic criteria to avoid these stocks is
 
 It helps me a lot
 ```
+https://x.com/Hirengabani23/status/1974413401637158995
+
+💫Mark Douglas categorized traders into three main psychological groups:
+
+1. Consistent Winners
+
+2. Consistent Losers
+
+3. Boom and Bust Traders
+
+✅The difference between these groups is psychology, not strategy.
+
+✅Many traders have profitable systems, but only consistent winners have the mental framework to apply them with discipline and detachment.
+
+Cheers🍻
+
+![img_22.png](img_22.png)
+![img_23.png](img_23.png)
+![img_24.png](img_24.png)
+
+https://x.com/Hirengabani23/status/1974035118420382194
+
+💫Watching IPO master class of @dhanesh500 with @sourabhsiso19
+
+Clarity🔥
+
+link: https://youtu.be/tt21OVDUcQo?si=bxjUlkSYfwj8jU7q
+
+![img_25.png](img_25.png)
+

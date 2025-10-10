@@ -40,3 +40,8 @@
 
 [![Video Title](https://img.youtube.com/vi/oWWR8ZfnSxY/0.jpg)](https://www.youtube.com/watch?v=oWWR8ZfnSxY)
 
+# Trading Psychology - Tom Hougaard OPTO
+
+[![Video Title](https://img.youtube.com/vi/xoGOZD7-3gY/0.jpg)](https://www.youtube.com/watch?v=xoGOZD7-3gY&list=PLwXSFpbqzfuqD02aynS09IvQ12fxuUB5r)
+
+

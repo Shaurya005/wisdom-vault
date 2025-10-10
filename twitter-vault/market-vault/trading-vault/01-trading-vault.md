@@ -584,3 +584,22 @@ https://traderslab.gitbook.io/primetrading/tools/21dma-structure-tv-script
 
 ![img_29.png](img_29.png)
 
+
+[Twitter Space on Trading Vault](https://x.com/MaiHoonSaurabh/status/1974412243669573951)
+
+This is one of our Best Space Sessions packed with loads of knowledge.
+
+@iDavinderK
+bhai was very kind to spare time for all and share his experience.
+
+@tightvcptrader
+did an amazing job Hosting this Space.
+
+Here's the Recording: https://x.com/MaiHoonSaurabh/status/1973756849922166852
+
+https://x.com/stonks_sensei/status/1972705919109578946
+
+This is why 99% of traders never make it:
+
+![img_30.png](img_30.png)
+

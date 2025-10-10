@@ -118,3 +118,20 @@ Fake news as usual. Better summary of what I actually said:
 @naval is building a new company, here's a non-clickbait summary
 ```
 ![img_3.png](img_3.png)
+
+https://x.com/naval/status/1972484269567275487
+
+To understand human nature, read the older books. To develop specific knowledge, stay on the bleeding edge, read newer (technical) books.
+
+The best authors - Deutsch, Schopenhauer, Borges, Ted Chiang - write with very high density. The best authors respect the reader’s time.
+
+https://x.com/moneyworks4u_fa/status/1972693430896918847
+
+We live in an era of over sharing our personal lives. Yet I've found that making goals public creates a powerful, positive sense of accountability. It puts skin in the game. As I celebrate my 45th birthday today, these are the five core goals that will define my next chapter:
+
+1) Heath & Fitness: Run a half marathon every year, summit a 6000m mountain, and improve sleep by optimizing my circadian rhythm.
+2) Family Bonding: One international trip annually, a monthly date night, and a quarterly weekend getaway with my wife.
+3) Business Leadership: Build a second-tier leadership team at Moneyworks4u.
+4) Intellectual Pursuit: Master Python programming and learn one musical instrument.
+5) Financial Milestone: Hit a nine-figure personal portfolio.
+

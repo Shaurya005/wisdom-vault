@@ -59,7 +59,26 @@ If you are doing everything else right- good products, good marketing, good crea
 
 **May 20, 2025** <br>
 
-## **1. Core Web Vitals**
-**[Arindan Paul](https://x.com/arindam___paul/status/1924869038167228797)** | **[Original Tweet](https://x.com/arindam___paul/status/1924869038167228797)**
+## [Aviral Bhatnagar](https://x.com/aviralbhat)
+[Startup Books](https://x.com/aviralbhat/status/1974385301834408421)
 
+Books that will help you understand startups, VC and tech a lot better:
+
+- Zero to One: Why competition is for losers
+- Hard Things about Hard Things: Reality of running a startup
+- Power Law: Why VC works the way it does
+- Alex Ferguson: How to manage stars and egos
+- Shoe Dog: How to start a disruptive brand from scratch
+- VC: How risk capital started with whaling expeditions
+- Golden Tap: Starting up in India is both exciting and hard
+- Like, Share and Subscribe: How YouTube became the machine it did
+- Big Billion Startup: Why Flipkart's story was not as easy as it seems
+- Innovator's Dilemma: How to spot a disruptive company before anyone
+- Matchmakers: Why platforms like FB, GOOG and AMZN are closer than you think
+- Bad Blood: When startup dreams evolve into fraud
+- Steve Jobs: Why confrontation drove the biggest innovator of this century
+- The Thinking Machine: How Nvidia's overnight success took 35 years
+- No Rules Rules: How to build a startup culture
+
+Big gap on Indian startups and tech which I hope to fill, but these will take you very far ahead
 

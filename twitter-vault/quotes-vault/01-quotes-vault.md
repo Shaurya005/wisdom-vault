@@ -10,3 +10,7 @@ He who speaks does not know.
 “I did not succeed in life by intelligence. I succeeded because I have a long attention span.”
 
 —Charlie Munger
+
+
+Be delusional enough to believe that it's possible.
+Be disciplined enough to prove yourself right.

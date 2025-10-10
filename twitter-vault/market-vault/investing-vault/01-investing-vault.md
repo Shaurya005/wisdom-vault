@@ -174,3 +174,43 @@ Yet, many who de-boarded the train during the lull never managed to get back on.
 The lesson is simple—stick to your process of finding good businesses at reasonable valuations. As a retail investor, time is your biggest advantage. You don’t have to deal with institutional constraints or the pressure of publishing a NAV every day.
 
 Avoid style drift. Stay flexible within your process. That discipline is what ultimately creates convexity in investing...
+
+[Biharilal Interview, Co-founder of Abakkus Asset Managers](https://x.com/sourabhsiso19/status/1976251690631430277)
+
+“You don’t need to chase fancy strategies. The basics, done right and done consistently, build fortunes.”
+
+“Even if you pick stocks with your eyes closed if you stay invested for 10 years, there’s a 97% chance you’ll make money.”
+
+“Value without growth becomes deep value. The real winners are those that grow steadily and stay undervalued.”
+
+“The 15-15-15 Rule: 15% ROE, 15% earnings growth, and below 15 PE simple, rare, and powerful.”
+
+“Mistakes are the best teachers. Our investment philosophy is built on not repeating them.”
+
+https://www.youtube.com/watch?v=HclkE1m7W7w
+
+[Arvind Datta Book Recommendation](https://x.com/datta_arvind/status/1976179791528357935)
+
+The other day in the spaces I had mentioned I will recommend some book to read.
+This one is a must read
+
+1. The Little Book that Beats the Market by Joel Greenblatt
+
+![img_7.png](img_7.png)
+
+(https://x.com/ChanderBhatia01/status/1973000294142259429)
+
+Five of my favourite quotes which I apply in my personal and professional life-
+
+"It only takes a handful of big winners to make a lifetime of investing worthwhile." Peter Lynch
+
+“In the stock markets, a small percentage of people end up being successful in the long run, whereas the majority of people, in spite of being successful in the short run, end up losers in the long run” Parag Parikh
+
+“The bulk of your professional success comes from doing one task exceptionally well.”
+From the book “Deep Work”
+
+“The big money is not in the buying and selling, but in the waiting." Charlie Munger
+
+"Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young. The greatest thing in life is to keep your mind young." Henry Ford
+
+Your favourite quote?

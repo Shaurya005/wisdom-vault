@@ -373,3 +373,49 @@ But that Gap filled 3 times. Are we taking it that every BO attempt makes the re
 
 To those asking me where to find the Dan Zanger's letters - I bet 99% of them haven't even gone through his FREE charts posted on his X handle.
 @DanZanger
+
+https://x.com/thechartist26/status/1976306856919241182
+
+If you are a complete beginner
+
+Learn the zone of supply and demand equilibrium, which is often called as consolidation zone on the chart
+
+Look for the stocks consolidating in a tight range
+
+The consolidation range should be less than 5 to 6% and the stock should have a prior uptrend
+
+Select the stocks that are close to their highs and from the strong sector
+
+Buy the stock as it comes out of the consolidation zone by risking not more than 0.25% of your capital on a single trade
+
+Place your stop loss near the consolidation zone low
+
+Keep on repeating the process, till you are comfortable with it
+
+You will fail miserably, if you end up, deciding how much the RBI will cut the rate or just in case you want to be the mediator in Russia-Ukraine war
+
+
+https://x.com/thechartist26/status/1975181925959823518
+
+For the stock that has not yet broken out, but I intend to take an entry based on anticipation - I buy 1/4 of the total position size that is permissible
+
+The permissible position size is dependent on where I place the stop loss
+
+If the SL is 4% deep, the maximum permissible position size is 25, so I will take 6.25% position size in anticipation
+
+```
+Please elaborate on your 1/4 entry system
+```
+
+https://x.com/thechartist26/status/1973736999921274955
+
+Classic by Stanley Druckenmiller
+
+https://open.substack.com/pub/aryadeniz/p/stanley-druckenmillers-lost-tree?r=tv3fh&utm_medium=ios
+
+https://x.com/thechartist26/status/1971438968584667563
+
+My buying process
+
+https://open.substack.com/pub/thechartist/p/buy-rules?r=tv3fh&utm_campaign=post&utm_medium=web&showWelcomeOnShare=false
+

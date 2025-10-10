@@ -179,3 +179,112 @@ So Move on when you  find a stock at base 4.
 It’s already had its party. Don’t be the guy who shows up when the DJ’s packing up.
 
 ![img_21.png](img_21.png)
+
+https://x.com/AnkurPatel59/status/1976268407713456623
+
+How to get Better at Trading ?
+
+![img_22.png](img_22.png)
+
+https://x.com/AnkurPatel59/status/1975528531997106648
+
+Took me years to learn this: The difference between winning and losing trades in swing trading isn't the stock you pick - it's when you get in. Day 1 entries changed everything for me.
+
+#Trading
+
+![img_23.png](img_23.png)
+
+#Trading
+
+https://x.com/AnkurPatel59/status/1975151296245023227
+
+![img_24.png](img_24.png)
+
+https://x.com/AnkurPatel59/status/1975056187306717544
+
+Confused about when to use your full capital in trading? Read this first
+
+Q: I have capital but I am not using my full capital. Am I doing it right or wrong?
+
+A: When you are just starting out, even if you know some basics and have a setup, I would never suggest using your full capital. The reason is simple. Charts and patterns are easy. The bigger challenge is handling yourself, and that takes time. For some it takes six months, for some one year, and for some people even ten years are not enough.
+
+So my advice is to start with one tenth of your capital. If you have 10 lakhs, keep 9 lakhs aside and trade with only 1 lakh for the first six months or one year.
+
+Q: But why so less? With 1 lakh, how will I make money?
+
+A: The idea is not to make money in the beginning. The idea is to buy yourself time to learn. When you trade for 30 days, 50 days, or 100 days, you start to know two things. First, how the market works. Second, how you behave.
+
+You will learn about sectors, cycles, and rhythms. But most importantly, you will see your own habits. Saying “I will follow my stop loss” and actually following it are two very different things. Trading small protects your capital while you go through this learning process.
+
+If you lose, you lose only from that 1 lakh, not the 9 lakhs sitting safely aside. Your drawdown stays small. And if you are disciplined, you may not even lose the full 1 lakh. Instead, you gain the kind of experience no book or pattern can teach you.
+
+Q: Then when can I start adding the remaining capital?
+
+A: You should add only when you feel comfortable. Trading with 1 lakh and trading with 10 lakhs are two different games. So once you feel you are in sync with the market, once you stop panicking and doubting yourself too much, once you can hold trades properly, then you can add.
+
+But not all at once. If you were trading 1 lakh, increase it to 5 lakhs. Trade like that for some time, maybe 15 to 20 trades. If you are still comfortable, then add more. Step by step you can reach your full capital.
+
+But never start directly with 10 lakhs. Because if the loss is big, the time to recover will also be very big. And that is what you want to avoid.
+
+#Trading
+
+https://x.com/AnkurPatel59/status/1974404435309949235
+
+Your Weekend Learning is here..
+
+https://youtu.be/n-UO-py43Ug?si=2BATcBpKO7O45cj4
+
+```
+Market never moves in straight lines it runs in cycles. The mistake most investors make is changing their strategy again & again without knowing when their strategy actually works best.
+
+In this podcast with @pratikpatel939, we go deep into:
+
+https://youtu.be/n-UO-py43Ug?si=2BATcBpKO7O45cj4
+
+Why market cycles (every 3 years, 18–20 month rolling returns) are the hidden key to spotting multi-baggers.
+How to recognise frustration phases vs real bull runs.
+Why not cutting winners is more powerful than always cutting losses.
+How to use simple signals like 52-week highs + con-call reading to find mispriced gems.
+Real case studies: TARIL, Force Motors Urbania, Paytm, Reliance Infra & more.
+
+The difference between market perception vs business reality and how that gap creates outsized opportunities.
+
+This episode is full of practical frameworks, real trade breakdowns, and timeless wisdom on conviction & allocation. If you want to stop chasing noise and learn when to play big in markets this one is a must-watch.
+
+#MasterInOne
+```
+
+
+There's a pattern to every explosive move. Every 50%, 100%, 200% runner shows the same signs before it takes off.
+
+The setup is always there. You just need to know what actually matters.
+
+Here's what they all have in common:
+
+1. They're almost always young trends
+   The biggest money is made at the beginning of a trend, not the end. You want to catch them fresh off a major base, when the move is just starting to breathe. By the time everyone notices it, you're already in.
+
+2. They respect the moving averages
+   Watch how price treats the 10 and 20 EMA - it's everything. The real runners bounce off these levels like they're made of steel. When a stock holds its MAs session after session without violation, that's your tell that big money won't let it break.
+
+3. Volume confirms everything
+   The tape tells you who's in control before price does. Massive green bars on the push, then volume dries up completely on any pullback. That’s how you know the big money is interested in the stock.
+
+4. First or second consolidation after the base
+   This is where fortunes are made. The initial structure right after a big base breakout is your high probability setup zone. You're early, you're positioned, and if the position works in your favor, the risk reward equation becomes absurdly skewed.
+
+5. Strong follow-through days
+   One big green bar means nothing - it could be a trap. But when you see three, four, five days of relentless buying with tight closes near the highs, that's a conviction you can trust. That's when you know it’s actually big money. Don’t ignore such signs.
+
+#Trading
+
+![img_25.png](img_25.png)
+
+
+https://x.com/AnkurPatel59/status/1971587060935852427
+
+David Ryan turned $16K into $1.6M in 3 years and won the US Investing Championship 3 times.
+
+Here are the 10 lessons that changed everything.
+
+![img_26.png](img_26.png)
