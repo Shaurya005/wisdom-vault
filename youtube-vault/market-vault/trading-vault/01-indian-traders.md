@@ -4,6 +4,8 @@
 
 [![Video Title](https://img.youtube.com/vi/PqOV-K1VCns/0.jpg)](https://www.youtube.com/watch?v=PqOV-K1VCns)
 
+[![Video Title](https://img.youtube.com/vi/ENoeNSJtdXQ/0.jpg)](https://www.youtube.com/watch?v=ENoeNSJtdXQ)
+
 # Nitin Ranjan
 
 [![Video Title](https://img.youtube.com/vi/_G508yzwhWg/0.jpg)](https://www.youtube.com/watch?v=_G508yzwhWg)
@@ -26,9 +28,13 @@
 
 # Manas Arrora
 
+[![Video Title](https://img.youtube.com/vi/YYh5NYEpFAw/0.jpg)](https://www.youtube.com/watch?v=YYh5NYEpFAw)
+
 [![Video Title](https://img.youtube.com/vi/I4yOlWK8yk0/0.jpg)](https://www.youtube.com/watch?v=I4yOlWK8yk0)
 
 [![Video Title](https://img.youtube.com/vi/oNYx7R5fEww/0.jpg)](https://www.youtube.com/watch?v=oNYx7R5fEww)
+
+[![Video Title](https://img.youtube.com/vi/cm2b80ChhZI/0.jpg)](https://www.youtube.com/watch?v=cm2b80ChhZI)
 
 [![Video Title](https://img.youtube.com/vi/ZxeaNvB6JNQ/0.jpg)](https://www.youtube.com/watch?v=ZxeaNvB6JNQ)
 

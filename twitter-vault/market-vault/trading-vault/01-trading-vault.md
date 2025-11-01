@@ -5,24 +5,18 @@
 
 ⭐️ IPO TIP :
 
-In a situation,
-where multiple IPOs flock together,
+In a situation, where multiple IPOs flock together, in most of them, listing gains if any, will be limited, unless the IPO is a valuation bomb.
 
-in most of them, listing gains if any, will be limited, unless the IPO is a valuation bomb.
+👉In such a case, Keep track of all the good IPOs, listing with lesser gains or below expectation listing.
 
-👉In such a case,
-Keep track of all the good IPOs, listing with lesser gains or below expectation listing.
-
-Out of those, within next 6-12 months,
-At least 1-2 IPOs will give big breakout & might also double itself in the said duration.
+Out of those, within next 6-12 months, At least 1-2 IPOs will give big breakout & might also double itself in the said duration.
 
 SAVE IT and remember it.
 
 
 [IPO Proceeds Use](https://x.com/investorniti/status/1944012134645436885)
 
-If IPO proceeds,
-are used for either...
+If IPO proceeds, are used for either...
 
 🔸Debt Repayment or
 🔸Capacity expansion
@@ -39,19 +33,16 @@ If you can get the first two points spot on, you will rarely make mistake in IPO
 
 (of course while keeping other things constant like financials, promoter background etc)
 
-Save it.
-Use it as a theme to analyse IPOs if you do.
+Save it. Use it as a theme to analyse IPOs if you do.
 
 #IPOAlert
-
 
 ## [Mohit aka ishmohit](https://x.com/ishmohit1)
 [IPO Trading](https://x.com/ishmohit1/status/1936438214367346723)
 
 Simple framework
 
-20-30 Pe or
-Below 1.5 times Peg
+20-30 Pe or Below 1.5 times Peg
 
 Top 3 in the market it operates in
 
@@ -71,7 +62,6 @@ which includes multiple fundamental aspects to filter stocks.
 Free to use
 
 https://screener.in/user/145178/
-
 
 ## [The Chartians](https://x.com/chartians)
 [+-2 % Range](https://x.com/chartians/status/1933079422862819626)
@@ -99,8 +89,7 @@ These are the ones most likely to lead the rally when the trend flips.
 
 #StockMarketIndia
 
-<img width="1080" height="1350" alt="GyACJKvXQAETcLD" src="https://github.com/user-attachments/assets/27894b02-a9f8-40ef-a741-233c35a2d34d" />
-
+![img_31.png](img_31.png)
 
 [TI (Tilaknagar Ind) - 5 Star Setup ⭐️](https://x.com/chartians/status/1956940236417839538)
 
@@ -113,7 +102,7 @@ Catalyst : Imperial Blue brand acquisition
 
 ![img.png](img.png)
 
-https://x.com/chartians/status/1665680226909835264
+[TC 2000 Platform](https://x.com/chartians/status/1665680226909835264)
 
 The Indian markets need a power packed product like the TC2000.
 
@@ -127,7 +116,7 @@ There is not a single product that offers one stop solution like the #TC2000
 
 Do you have any such software that you use ?
 
-https://x.com/chartians/status/1964962249434616149
+[NSDL Setups](https://x.com/chartians/status/1964962249434616149)
 
 If you have studied past winners, NSDL is doing almost a replica of 2 setups.
 
@@ -136,10 +125,9 @@ If you have studied past winners, NSDL is doing almost a replica of 2 setups.
 
 Similar IPO bases and tightness near highs
 
-https://x.com/chartians/status/1964976757821542564
+[Urgency Gaps](https://x.com/chartians/status/1964976757821542564)
 
 Not necessary for stocks. Stocks show urgency via gaps, if they get filled then the urgency is over !
-
 
 ## [Ravi Sharma](https://x.com/StocksNerd)
 [Demand/Supply zones](https://x.com/StocksNerd/status/1933029111561130200)
@@ -197,7 +185,8 @@ My indicators are simple for swing trading😍:
 ## [Gaurav Vasshisht](https://x.com/gauravvasshisht)
 [Dan Zanger Quote](https://x.com/gauravvasshisht/status/1941280886076604582)
 
-“I test the waters on a lot of stocks that break out, and I probably sell at least 50 percent of them either a minor gain or loss because they aren’t acting the way I want them to. It’s just like fishing — you never know when you’ll get a big fish on the line. One thing is certain — if you don’t step in and buy the stock on the breakout, you won’t have a chance to know what you’ve got. So I do a lot of fishing.” - Dan Zanger
+“I test the waters on a lot of stocks that break out, and I probably sell at least 50 percent of them either a minor gain or loss because they aren’t acting the way I want them to. 
+It’s just like fishing — you never know when you’ll get a big fish on the line. One thing is certain — if you don’t step in and buy the stock on the breakout, you won’t have a chance to know what you’ve got. So I do a lot of fishing.” - Dan Zanger
 
 ## [My Stocks](https://x.com/mystocks_in)
 [Trading Journey](https://x.com/mystocks_in/status/1940433967544426539)
@@ -209,24 +198,15 @@ And now in 1.5 Years i made this 👇🥺
 
 ![img_7.png](img_7.png)
 
-In this journey i made many mistakes , my capital in start of 2022 is 7-8 lakhs only then i add some capital also , i learn many thinks in this 2-3 years from my frnds
-@stocksgeeks
-@DSS_Rajput007
-@stonkssguy
-@selfunmade
-and biggest thanks to my brother
-@Breakout_trades
-for supporting many thinks i learn a lot from you. 🥰
+In this journey i made many mistakes , my capital in start of 2022 is 7-8 lakhs only then i add some capital also , i learn many thinks in this 2-3 years from my frnds @stocksgeeks @DSS_Rajput007 @stonkssguy @selfunmade
+
+and biggest thanks to my brother @Breakout_trades for supporting many thinks i learn a lot from you. 🥰
 
 ## [Trader’s Handbook](https://x.com/yadav_s_tannu/status/1940103779887788518)
 
 The Trader’s Handbook is a must-read for building your trading system & mindset.
 My personal part is Risk management n detailed annotated charts & bonus webinars to understand in deep.
-Big thanks to the authors
-@RichardMoglen
-@TraderLion_
-@AmeetRai_
-@NickSchmidt_
+Big thanks to the authors @RichardMoglen @TraderLion_ @AmeetRai_ @NickSchmidt_
 
 ## [Mathematics and Einstein](https://x.com/ut_mishra/status/1940328745367458143)
 
@@ -269,7 +249,7 @@ If it was just a shakeout, then the leaders that we see with big hammer candles 
 
 ![img_16.png](img_16.png)
 
-[BrkoutGeek](https://x.com/BrkoutGeek)
+## [BrkoutGeek](https://x.com/BrkoutGeek)
 [How to Become Best in Trading](https://x.com/BrkoutGeek/status/1952646436618645764)
 
 How to Become Best in Trading :
@@ -281,7 +261,7 @@ How to Become Best in Trading :
 
 In 6 Month you will start seeing lot of changes.
 
-[Lone Stock Trader](https://x.com/LoneStockTrader)
+## [Lone Stock Trader](https://x.com/LoneStockTrader)
 [Reward-to-Risk and Win Rate](https://x.com/LoneStockTrader/status/1948084243982340274)
 
 Important #trading insight:
@@ -319,12 +299,6 @@ Managing Winning Trades: How to Let Profits Run Without Giving Them Back 👇
 
 ![img_10.png](img_10.png)
 
-[Understand Trading](https://x.com/stonks_sensei/status/1953704251831492685)
-
-If you're nothing without trading, you haven't understood trading at all:
-
-![img_11.png](img_11.png)
-
 [10 Similarities of the Biggest Stock Market Winners in the Last 100 Years 👇](https://x.com/BlogJulianKomar/status/1954942150845542605)
 
 ![img_2.png](img_2.png)
@@ -351,7 +325,6 @@ I've put all the 2025 @TraderLion_
 Conference streams in 1 place for easy access.
 
 🔁 Retweet and share 🔁
-
 
 [Trend Template ----Mark Minervin](https://x.com/RebellioMarket/status/1956509689614598303)
 
@@ -380,15 +353,11 @@ Despite of strong guidance and expansion
 Despite of strong guidance and good pace of sales growth
 #Kalyan is bleeding
 
-No one knows about the company beyong certain things
+No one knows about the company beyong certain things Thats where stop loss comes into play.
 
-Thats where stop loss comes into play.
-
-Exit first
-Analyse later
+Exit first Analyse later
 
 ## [Zafar Shaikh](https://x.com/InvesysCapital)
-
 [Index Death Cross](https://x.com/InvesysCapital/status/1877230246354665802)
 
 A potential #DeathCross on the #Nifty500 Index is developing & worth watching
@@ -418,13 +387,9 @@ If the Death Cross is triggered investors should prepare for potential market he
 The best contraction / HTF setups share the same traits:
 
 🔸Clean up move before consolidation
-
 🔸Tight, compact range
-
 🔸Highs/lows holding strong
-
 🔸Volume dries up in contraction
-
 🔸Breakout comes with good volume
 
 Master these traits & spotting quality setups gets simple🥂
@@ -437,8 +402,7 @@ Master these traits & spotting quality setups gets simple🥂
 📊 I went through all of @iManasArora
 2021 𝙩𝙧𝙖𝙙𝙚𝙨 & 𝙘𝙤𝙢𝙥𝙞𝙡𝙚𝙙 𝙡𝙚𝙖𝙧𝙣𝙞𝙣𝙜𝙨 𝙞𝙣𝙩𝙤 𝙖 𝙋𝘿𝙁. 🚀
 
-𝘾𝙝𝙚𝙘𝙠 𝙞𝙩 𝙤𝙪𝙩 👇
-https://drive.google.com/file/d/1HSu8rHoW7n_vHKZBmw7BAA9VTnjOTKaS/view?usp=drivesdk
+𝘾𝙝𝙚𝙘𝙠 𝙞𝙩 𝙤𝙪𝙩 👇https://drive.google.com/file/d/1HSu8rHoW7n_vHKZBmw7BAA9VTnjOTKaS/view?usp=drivesdk
 
 Follow @mohitrai55 for more research-driven breakdowns & trading insights 🔥
 
@@ -464,7 +428,7 @@ Don't fall in the race of getting most early entry,  people trying that are curr
 ![img_21.png](img_21.png)
 
 ## [Nich Schmidt](https://x.com/NickSchmidt_)
-[(https://x.com/NickSchmidt_/status/1964131045067849741)
+[Biggest Breakthrough](https://x.com/NickSchmidt_/status/1964131045067849741)
 
 My biggest breakthrough wasn’t learning anything new. It was realizing I already knew enough I was just sabotaging myself with unnecessary stuff. I was doing too much and adding complexity when I just had to do less.
 
@@ -539,7 +503,6 @@ I started as a day trader an experienced the exact same evolution. To me, this i
 
 Took mom to lunch today with my wife and son. Living life, whilst doing what I love. Priceless.
 
-
 [Jeff Sun, CFTe](https://x.com/jfsrev/status/1966511757910032579)
 
 If you’ve accepted that your win rate will often be below 35% in most months, the only way to consistently finish positive on those months is by having a non-discretionary sell rule to hold onto your winning trades for as long as possible, while also cutting losing trades within a limited -R as soon as possible.
@@ -577,23 +540,19 @@ https://traderslab.gitbook.io/primetrading/tools/21dma-structure-tv-script
 
 ![img_28.png](img_28.png)
 
-
 [SME Manipulation by Flippers](https://x.com/srir54/status/1966134056770572549)
 
 #sugslloyd one flipper has 5 lakh position and another now has 5 lakh position
 
 ![img_29.png](img_29.png)
 
-
 [Twitter Space on Trading Vault](https://x.com/MaiHoonSaurabh/status/1974412243669573951)
 
 This is one of our Best Space Sessions packed with loads of knowledge.
 
-@iDavinderK
-bhai was very kind to spare time for all and share his experience.
+@iDavinderK bhai was very kind to spare time for all and share his experience.
 
-@tightvcptrader
-did an amazing job Hosting this Space.
+@tightvcptrader did an amazing job Hosting this Space.
 
 Here's the Recording: https://x.com/MaiHoonSaurabh/status/1973756849922166852
 
@@ -602,4 +561,10 @@ https://x.com/stonks_sensei/status/1972705919109578946
 This is why 99% of traders never make it:
 
 ![img_30.png](img_30.png)
+
+[Understand Trading](https://x.com/stonks_sensei/status/1953704251831492685)
+
+If you're nothing without trading, you haven't understood trading at all:
+
+![img_11.png](img_11.png)
 
