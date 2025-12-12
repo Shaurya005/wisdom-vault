@@ -2,6 +2,119 @@
 # **Himanshu Sharma Trading Vault**
 
 ## [Himanshu Sharma aka The Chartist](https://x.com/_chartitude)
+
+## Scanning Criteria
+
+[Buyable List](https://x.com/_chartitude/status/1931337683059568904)
+
+First I run EPS scan. Looking for the stocks that have earnings or RS scan that has good technical charts
+
+Then I see which one is immediately buyable and put that to the buyable list/focused list
+
+Preference: Mcap = 1000-10000 cr
+Sector/Industry - bunch of stocks tell me that
+
+For instance in April 2nd week - GRSE, Cochin, Mazdock told me there is something in Defence
+
+After that I read the basics of the business and finalise a few names
+
+[Catch Multibaggers](https://x.com/_chartitude/status/1944205493590794284)
+
+If you want to catch multi-baggers - you need just three scans:
+
+EPS
+Relative Strength
+IPO stocks (listed within a year)
+
+That’s it
+
+More than this will create a lot of overlap with hardly a fewer uncommon names & a lot of confusion
+
+Keep it simple
+
+[Filtering Tools](https://x.com/thechartist26/status/1965387708056174896)
+
+ChartsMaze and Market Smith India
+
+```
+Which site do you use for filtering stocks.. you have mentioned before ... Forgot to note down...
+```
+
+## Trading Style
+
+[Trading Rules](https://x.com/thechartist26/status/1964246135712969000)
+
+Max trades 8
+%risk 0.5% to 1
+Risk reward minimum aim 5
+Yearly return - no expectation
+```
+Pls Answer these
+1. How many trades are generally open at one point of time?
+2. In each trade how much % of portfolio risk do you take?
+3.Minimum risk reward you keep?
+4.What’s your yearly returns target?
+5.What’s your avg holding period?
+```
+
+## Recommended Trading Resources
+
+[Substack Inc](https://x.com/_chartitude/status/1943496791128969667)
+
+@SubstackInc is the great tool for reading about the companies while travelling
+
+Please let me know the top blogs you follow over there
+
+[Newsletters Compilation](https://x.com/_chartitude/status/1942405283415810316)
+
+⭐️⭐️⭐️ For the interested learners
+
+The December-March 2025 compilation of the newsletters for the learning purpose is now uploaded on my website
+
+http://chartitude.com
+
+You can download the attachment & take a printout
+
+Please give your valuable feedback as well.
+
+[Reading Books](https://x.com/_chartitude/status/1940632023124922546)
+
+If you are an investor - read Stan Weinstein
+
+If trader - two books by Mark Minervini
+
+
+[Trader Lion Conference](https://x.com/_chartitude/status/1946751765640102089)
+
+You must watch all the days of @TraderLion_ conference by now
+Free resource & hear out from a lot of participants their own perspective of the market
+If you still ask in another 6 months - where should you start - you admit you’re lazy
+
+[Trader Lion Conference](https://x.com/_chartitude/status/1940911923719295319)
+
+@TraderLion_ conference is just about to start
+
+For any beginner - this is one of the best free resources to learn from the greats. Thankful to the team to democratise the financial education beyond the borders.
+
+Make the maximum use of it.
+
+[Dan Zanger's Letters](https://x.com/_chartitude/status/1948034881633812704)
+
+Dan Zanger’s letters will be the goldmine for the upcoming generations forever.
+
+85,000+ pages & still counting
+
+No jargons
+Simple lines drawn on the stocks with good earnings or relative strength
+
+Pure wisdom
+
+[Dan Zanger Free Charts](https://x.com/thechartist26/status/1964920916678426651)
+
+To those asking me where to find the Dan Zanger's letters - I bet 99% of them haven't even gone through his FREE charts posted on his X handle.
+@DanZanger
+
+
 [Earning Charts](https://x.com/_chartitude/status/1936225795011494333)
 
 Not all good earnings will have good charts
@@ -53,18 +166,7 @@ The issue is not in the process but in the discipline. Thats why hardly a few su
 
 No one is here to learn the process but just interested in the stock names. :)
 
-[Buyable List](https://x.com/_chartitude/status/1931337683059568904)
 
-First I run EPS scan. Looking for the stocks that have earnings or RS scan that has good technical charts
-
-Then I see which one is immediately buyable and put that to the buyable list/focused list
-
-Preference: Mcap = 1000-10000 cr
-Sector/Industry - bunch of stocks tell me that
-
-For instance in April 2nd week - GRSE, Cochin, Mazdock told me there is something in Defence
-
-After that I read the basics of the business and finalise a few names
 
 [What's Squat](https://x.com/_chartitude/status/1940426112485736744)
 
@@ -93,63 +195,9 @@ If it falls and hit the SL - I lose 0.5-0.7% per trade.
 
 If it flies high in the air - I have a full 10% size.
 
-[Catch Multibaggers](https://x.com/_chartitude/status/1944205493590794284)
-
-If you want to catch multi-baggers - you need just three scans:
-
-EPS
-Relative Strength
-IPO stocks (listed within a year)
-
-That’s it
-
-More than this will create a lot of overlap with hardly a fewer uncommon names & a lot of confusion
-
-Keep it simple
-
-[Substack Inc](https://x.com/_chartitude/status/1943496791128969667)
-
-@SubstackInc is the great tool for reading about the companies while travelling
-
-Please let me know the top blogs you follow over there
-
-[Newsletters Compilation](https://x.com/_chartitude/status/1942405283415810316)
-
-⭐️⭐️⭐️ For the interested learners
-
-The December-March 2025 compilation of the newsletters for the learning purpose is now uploaded on my website
-
-http://chartitude.com
-
-You can download the attachment & take a printout
-
-Please give your valuable feedback as well.
-
-[Reading Books](https://x.com/_chartitude/status/1940632023124922546)
-
-If you are an investor - read Stan Weinstein
-
-If trader - two books by Mark Minervini
 
 
-[Trader Lion Conference](https://x.com/_chartitude/status/1946751765640102089)
 
-You must watch all the days of
-@TraderLion_
-conference by now
-
-Free resource & hear out from a lot of participants their own perspective of the market
-
-If you still ask in another 6 months - where should you start - you admit you’re lazy
-
-[Trader Lion Conference](https://x.com/_chartitude/status/1940911923719295319)
-
-@TraderLion_
-conference is just about to start
-
-For any beginner - this is one of the best free resources to learn from the greats. Thankful to the team to democratise the financial education beyond the borders.
-
-Make the maximum use of it.
 
 
 [Catch Multibaggers](https://x.com/_chartitude/status/1943106863664632192)
@@ -163,16 +211,7 @@ If you spotted suprise in the previous quarter - then look for the earnings acce
 
 Analyse clean charts if you are a beginner. Don't intend to draw anything. Price structure or you can say that the law of supply & demand is supreme.
 
-[Dan Zanger's Letters](https://x.com/_chartitude/status/1948034881633812704)
 
-Dan Zanger’s letters will be the goldmine for the upcoming generations forever.
-
-85,000+ pages & still counting
-
-No jargons
-Simple lines drawn on the stocks with good earnings or relative strength
-
-Pure wisdom
 
 
 
@@ -314,20 +353,7 @@ Just in case you are new to following me:
 
 I have a free class on Risk Management on my website.
 
-[Trading Rules](https://x.com/thechartist26/status/1964246135712969000)
 
-Max trades 8
-%risk 0.5% to 1
-Risk reward minimum aim 5
-Yearly return - no expectation
-```
-Pls Answer these
-1. How many trades are generally open at one point of time?
-2. In each trade how much % of portfolio risk do you take?
-3.Minimum risk reward you keep?
-4.What’s your yearly returns target?
-5.What’s your avg holding period?
-```
 
 [Module of Course](https://x.com/thechartist26/status/1963471121195696370)
 
@@ -353,13 +379,7 @@ Newsletter No 86 is uploaded now
 
 ![img_6.png](img_6.png)
 
-[Filtering Tools](https://x.com/thechartist26/status/1965387708056174896)
 
-ChartsMaze and Market Smith India
-
-```
-Which site do you use for filtering stocks.. you have mentioned before ... Forgot to note down...
-```
 
 [Gap Filling Process](https://x.com/thechartist26/status/1965266943268749789)
 
@@ -369,10 +389,7 @@ Merely closing is the first step. the next is to have a strong follow-through wh
 
 But that Gap filled 3 times. Are we taking it that every BO attempt makes the resistance weaker?
 
-[Dan Zanger Free Charts](https://x.com/thechartist26/status/1964920916678426651)
 
-To those asking me where to find the Dan Zanger's letters - I bet 99% of them haven't even gone through his FREE charts posted on his X handle.
-@DanZanger
 
 https://x.com/thechartist26/status/1976306856919241182
 
@@ -418,4 +435,10 @@ https://x.com/thechartist26/status/1971438968584667563
 My buying process
 
 https://open.substack.com/pub/thechartist/p/buy-rules?r=tv3fh&utm_campaign=post&utm_medium=web&showWelcomeOnShare=false
+
+21, 50 and 200 EMA
+```
+Which are these 3 MA?
+```
+
 

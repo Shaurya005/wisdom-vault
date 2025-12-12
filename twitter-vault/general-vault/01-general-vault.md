@@ -135,3 +135,45 @@ We live in an era of over sharing our personal lives. Yet I've found that making
 4) Intellectual Pursuit: Master Python programming and learn one musical instrument.
 5) Financial Milestone: Hit a nine-figure personal portfolio.
 
+
+https://x.com/AshishMeher7/status/1994429905229295720
+
+Most people in India don’t know this… but when you buy a new car in India the government actually owes you money back.
+
+Yes, a refund. And it’s already linked to your PAN.
+
+Whenever you buy a car above ₹10 lakh, the dealer collects 1% TCS.
+So a ₹10L car → ₹10,000 TCS
+A ₹30L SUV → ₹30,000 TCS
+This money is YOURS. You can claim it.
+
+How to get it back?
+1️⃣ Ask your dealer for Form 27D right after purchase
+2️⃣ Check your Form 26AS while filing ITR
+3️⃣ Make sure the TCS is visible
+4️⃣ Claim it as refund or adjust it against your tax
+
+That’s it.
+No trick. No hidden rule.
+Just a benefit almost nobody talks about.
+
+So if you’re buying a car 🚗 above ₹10 lakh
+please don’t leave your money behind.
+Take Form 27D… and take your refund too. 💰
+
+Information like this saves people real money.
+Follow @AshishMeher7 for more such useful updates.
+
+
+https://x.com/aditya_kondawar/status/1994364779021099257
+
+Rapido overtook Uber in monthly active users in India
+
+SK Hynix overtook Samsung after 30 years to become the #1 DRAM maker globally (memory chips)
+
+Nvidia overtook Intel and AMD in GPUs
+
+In tech, aggression is the only moat; the biggest threat to tech is tech
+
+Run fast and break things is the only thing that big tech needs to do; if you slow down, you're left behind!
+
