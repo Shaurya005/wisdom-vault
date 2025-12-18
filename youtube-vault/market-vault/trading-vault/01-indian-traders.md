@@ -10,6 +10,12 @@
 
 [![Video Title](https://img.youtube.com/vi/_G508yzwhWg/0.jpg)](https://www.youtube.com/watch?v=_G508yzwhWg)
 
+https://justpaste.it/apmeet
+
+https://www.tradingview.com/u/finallynitin/#published-scripts
+
+https://simplifyingtrading.my.canva.site
+
 # Himanshu Sharma
 
 [![Video Title](https://img.youtube.com/vi/6mfKiwefXYo/0.jpg)](https://www.youtube.com/watch?v=6mfKiwefXYo)
