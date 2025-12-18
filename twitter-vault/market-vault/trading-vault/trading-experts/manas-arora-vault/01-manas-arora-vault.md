@@ -3,6 +3,10 @@
 
 ## [Manas Arora](https://x.com/iManasArora)
 
+## Scanning Criteria
+## Trading Style
+## Recommended Trading Resources
+
 [Scans Not Real Edge](https://x.com/iManasArora/status/1958008843733995682)
 
 You're chasing the perfect scan. I’m chasing something else.

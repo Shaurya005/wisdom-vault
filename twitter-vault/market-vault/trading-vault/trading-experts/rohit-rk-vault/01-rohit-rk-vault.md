@@ -2,27 +2,29 @@
 
 ## [Rohit RK aka Volatility Volume and Value](https://x.com/VVVStockAnalyst)
 
+
+## Scanning Criteria
+
 [Earning Charts](https://x.com/VVVStockAnalyst/status/1933178361918222553)
 
 Start doing High RS Screening, stocks that resist this fall. They are your next winners
 
 #VVVTip
 
+[Net New Highs](https://x.com/VVVStockAnalyst/status/1965035190662861227)
+
+The Net New Highs are breaking out from a range that has been there since the last 6 months.
+
+The good times are coming.
+
+![img_22.png](img_22.png)
+
+
+## Trading Style
+
 [Highly Liquid](https://x.com/VVVStockAnalyst/status/1931288884794753533)
 
 Choosing just highly liquid leading stocks with very clean and linear moves, good attitude after each past breakout and belonging to the leading sector is the easiest way to become rich in swing trading in Indian Markets.
-
-[Dan Zanger Quote](https://x.com/VVVStockAnalyst/status/1941047374173909299)
-
-This single Quote from Dan Zanger Changed my life.
-
-Dan Zanger turned 10k dollars to 18M in the fastest time.
-
-I stopped sitting in stocks that broke out and spend days and weeks there, it should move the moment it breaks out.
-
-Few understand this magic formula but those who do will do really well in Trading.
-
-![img_6.png](img_6.png)
 
 [IPO Flags](https://x.com/VVVStockAnalyst/status/1940813584407449767)
 
@@ -31,6 +33,7 @@ I generally like IPO Flags. IPO bases are good but IPO Flags give powerful moves
 Just see BAJAJ INDEF - What a clean move - It had a mix of Institutional Buying + Young IPO Base.
 
 SCODA TUBES - Powerful Young IPO Flag structure
+
 
 [Maintain Equity Curve](https://x.com/VVVStockAnalyst/status/1940261276598641094)
 
@@ -54,6 +57,31 @@ Institutional Buying.
 IPO Bases.
 Sectoral Bets.
 
+[IPO Base](https://x.com/VVVStockAnalyst/status/1954464526482706667)
+
+![img_3.png](img_3.png)
+
+
+[Win Rate and Environment](https://x.com/VVVStockAnalyst/status/1958818358389842320)
+
+The most important parameter for Swing trading for me is Win Rate and Environment
+
+Even if a few stocks are doing 10-15% moves but that % win rate is too low. Im not trading such kind of markets.
+
+I only want to play high win rate markets and environments. That's my game !
+
+[Losing small 10 times](https://x.com/VVVStockAnalyst/status/1971446845399310699)
+
+This game is about losing small 10 times & Winning big 3-4 times.
+
+Using a small stoploss let's you achieve the math behind super performance.
+
+10 failed trades of 3% SL @ 10% PS costs you 3% of PF
+3 Successful trades @ 10PS of 10% gain gets that back.
+
+I'm calculating really low win rate of 3/13 win trades, the more you improve using selection criteria, the game keeps getting better !
+
+## Recommended Trading Resources
 
 [Trader Lion Conference](https://x.com/VVVStockAnalyst/status/1949704716134351330)
 
@@ -68,19 +96,6 @@ From 3:13:03 in TL Conference
 Link: https://www.youtube.com/live/MKUjsaGE8wk
 
 
-[Raging Bull Market](https://x.com/VVVStockAnalyst/status/1948645193609031865)
-
-Trailing with moving averages alone works only for the Raging Bull Markets.
-
-Indian markets have fooled or disguised traders in the last 4 years by acting textbook style with moves being longer and smoother making a false assumption in trader's minds that markets will remain like this forever.
-
-The post Covid Era is just a period in Indian history of sporadic growth and excess liquidity flowing making things work really well. But to survive in this market being a trader for a very long time without getting emotionally tired one should definitely learn what works through periods of decades. We have done that research and knowing to adapt your selling is the most important thing that will help you survive in this markets for the longest period with the most clean equity curve.
-
-
-[IPO Base](https://x.com/VVVStockAnalyst/status/1954464526482706667)
-
-![img_3.png](img_3.png)
-
 [1.5 hours Presentation](https://x.com/VVVStockAnalyst/status/1954870642920341575)
 
 If you are serious about Trading and want to change your life, get really serious about it and treat it like a business.
@@ -88,14 +103,6 @@ If you are serious about Trading and want to change your life, get really seriou
 Here is my 1.5 hours Presentation that includes tons of learnings that can help you super perform
 
 Link : https://vvvlearn.com/blog
-
-[When to step out](https://x.com/VVVStockAnalyst/status/1947881931594473721)
-
-Watchlists are red, Indices are cracking the 20MA and the stocks are doing fake breakouts.
-
-Only experienced know to notice it and step out, the rest will keep trading such markets.
-
-Know when to step out.
 
 
 [Book Recommendation](https://x.com/VVVStockAnalyst/status/1947861730178068970)
@@ -108,6 +115,82 @@ The 2 legendary books by @markminervini
 - They are the absolute beast books to start your understanding about the stock market and Swing trading.
 
 ![img_4.png](img_4.png)
+
+
+[Champion Trader](https://x.com/VVVStockAnalyst/status/1955138833844208078)
+
+How to become a Champion Trader : The Complete Guide
+
+To everyone thinking of becoming a Champion Trader and stepping into the world of stockmarkets with a dream & desire to become Rich
+
+Here is they way to do it professionally with longevity.
+
+Link: https://vvvlearn.com/post/how-to-become-a-champion-trader
+
+
+[Free Swing Trading Learning Content](https://x.com/VVVStockAnalyst/status/1966118405070524778)
+
+There is 3.5 hours of High Quality Swing Trading Learning Content for FREE inside my website that can substantially improve the Quality of your returns & performance.
+
+Link : http://vvvlearn.com/blog
+
+This is exactly what I have used to generate superior performance in Swing trading over the last 5 years consistently beating the SmallCap index every year substantially and maintaining very low drawdowns throughout.
+
+![img_19.png](img_19.png)
+
+[Taking cues from heroes](https://x.com/VVVStockAnalyst/status/1961000167320027186)
+
+Your heroes are your blueprints.
+
+I took many cues from Minnervini, O'Neil and many other legends and finally brought in my own touch to the game.
+
+The waiting game is something I have mastered and am very proud of. That was obtained from Darvas
+
+![img_7.png](img_7.png)
+
+
+[Dan Zanger Quote](https://x.com/VVVStockAnalyst/status/1941047374173909299)
+
+This single Quote from Dan Zanger Changed my life.
+
+Dan Zanger turned 10k dollars to 18M in the fastest time.
+
+I stopped sitting in stocks that broke out and spend days and weeks there, it should move the moment it breaks out.
+
+Few understand this magic formula but those who do will do really well in Trading.
+
+![img_6.png](img_6.png)
+
+
+
+
+
+
+
+
+
+
+
+[Raging Bull Market](https://x.com/VVVStockAnalyst/status/1948645193609031865)
+
+Trailing with moving averages alone works only for the Raging Bull Markets.
+
+Indian markets have fooled or disguised traders in the last 4 years by acting textbook style with moves being longer and smoother making a false assumption in trader's minds that markets will remain like this forever.
+
+The post Covid Era is just a period in Indian history of sporadic growth and excess liquidity flowing making things work really well. 
+But to survive in this market being a trader for a very long time without getting emotionally tired one should definitely learn what works through periods of decades. 
+We have done that research and knowing to adapt your selling is the most important thing that will help you survive in this markets for the longest period with the most clean equity curve.
+
+[When to step out](https://x.com/VVVStockAnalyst/status/1947881931594473721)
+
+Watchlists are red, Indices are cracking the 20MA and the stocks are doing fake breakouts.
+
+Only experienced know to notice it and step out, the rest will keep trading such markets.
+
+Know when to step out.
+
+
+
 
 [Making and Keeping Money](https://x.com/VVVStockAnalyst/status/1947136953067155779)
 
@@ -127,13 +210,7 @@ High Probability Trading
 
 ![img.png](img.png)
 
-[Win Rate and Environment](https://x.com/VVVStockAnalyst/status/1958818358389842320)
 
-The most important parameter for Swing trading for me is Win Rate and Environment
-
-Even if a few stocks are doing 10-15% moves but that % win rate is too low. Im not trading such kind of markets.
-
-I only want to play high win rate markets and environments. That's my game !
 
 
 [Who I admire](https://x.com/VVVStockAnalyst/status/1958821658355278134)
@@ -156,15 +233,7 @@ If this is not called a clean setup, then what is clean ?
 
 ![img_1.png](img_1.png)
 
-[Champion Trader](https://x.com/VVVStockAnalyst/status/1955138833844208078)
 
-How to become a Champion Trader : The Complete Guide
-
-To everyone thinking of becoming a Champion Trader and stepping into the world of stockmarkets with a dream & desire to become Rich
-
-Here is they way to do it professionally with longevity.
-
-Link: https://vvvlearn.com/post/how-to-become-a-champion-trader
 
 [Learn About Trading](https://x.com/VVVStockAnalyst/status/1849106956335919361)
 
@@ -173,15 +242,7 @@ The best places to learn about Trading
 1. Books - Minnervini and O Neil
 2. Youtube videos of Kullamagie
 
-[Taking cues from heroes](https://x.com/VVVStockAnalyst/status/1961000167320027186)
 
-Your heroes are your blueprints.
-
-I took many cues from Minnervini, O'Neil and many other legends and finally brought in my own touch to the game.
-
-The waiting game is something I have mastered and am very proud of. That was obtained from Darvas
-
-![img_7.png](img_7.png)
 
 [Game of Probability](https://x.com/VVVStockAnalyst/status/1961000661291827551)
 
@@ -223,15 +284,7 @@ You can watch in EDGE browser - Windows & Safari Browser in Mac.
 
 ![img_11.png](img_11.png)
 
-https://x.com/VVVStockAnalyst/status/1966118405070524778
 
-There is 3.5 hours of High Quality Swing Trading Learning Content for FREE inside my website that can substantially improve the Quality of your returns & performance.
-
-Link : http://vvvlearn.com/blog
-
-This is exactly what I have used to generate superior performance in Swing trading over the last 5 years consistently beating the SmallCap index every year substantially and maintaining very low drawdowns throughout.
-
-![img_19.png](img_19.png)
 
 
 [Equiallocation on sectoral stocks](https://x.com/VVVStockAnalyst/status/1966369455803609588)
@@ -415,13 +468,7 @@ Clean Stage 2 bases do clean moves.
 
 ![img_21.png](img_21.png)
 
-https://x.com/VVVStockAnalyst/status/1965035190662861227
 
-The Net New Highs are breaking out from a range that has been there since the last 6 months.
-
-The good times are coming.
-
-![img_22.png](img_22.png)
 
 
 https://x.com/VVVStockAnalyst/status/1964972865847189840
@@ -708,13 +755,3 @@ This is a lesson through my experience, so dont ever lose hope & you can make FY
 
 If you liked my perspective, comment & Like to let me know if you are able to resonate
 
-https://x.com/VVVStockAnalyst/status/1971446845399310699
-
-This game is about losing small 10 times & Winning big 3-4 times.
-
-Using a small stoploss let's you achieve the math behind super performance.
-
-10 failed trades of 3% SL @ 10% PS costs you 3% of PF
-3 Successful trades @ 10PS of 10% gain gets that back.
-
-I'm calculating really low win rate of 3/13 win trades, the more you improve using selection criteria, the game keeps getting better !

@@ -2,6 +2,10 @@
 # **Himanshu Sharma Trading Vault**
 
 ## [Hiren Gabani](https://x.com/Hirengabani23)
+
+
+## Scanning Criteria
+
 [Cutting Noise](https://x.com/Hirengabani23/status/1932028633356312885)
 
 How do I cut the noise from many setups to 2-3 tradable ideas?
@@ -13,38 +17,6 @@ How do I cut the noise from many setups to 2-3 tradable ideas?
 
 & Manage your risk well.
 
-## [Hiren Gabani](https://x.com/Hirengabani23)
-
-[Stage Analysis](https://x.com/Hirengabani23/status/1945353308232933615)
-
-✨ Stage analysis has proved a game changer for me.
-
-✅Buying flag or bas in Stage-2: High chances of big move ( Stage -2 = Confirmation of institution accumulation)
-
-✅Buy flags or base in Stage -3 or 1: High chances of breakout failures ( Stage 3 or 1 = Anticipation of institution accumulation)
-
-✨This is the reason I always says: Don't buy anything blindly without context.
-
-![img_6.png](img_6.png)
-
-[2-4 % Drawdowns](https://x.com/Hirengabani23/status/1946072354851110962)
-
-✅If you start feeling uncomfortable by seeing 2-3% dd in your portfolio, mark my words, you're not gonna make big in this business.
-
-✅2-4% drawdown is part of this business.
-
-✅If you don't want big drawdowns, keep on trading with 0.1-0.2% of portfolio risk, where you do not make big nor lose big. But if you want good portfolio moves, you need to take calculated risk and press on gas in good market condition.
-
-That's the truth.
-
-
-[Win Rate](https://x.com/Hirengabani23/status/1946780963327078703)
-
-[🌟My trading system in a nutshell](https://x.com/Hirengabani23/status/1946780963327078703)
-
-Few🤌🤌
-
-![img_5.png](img_5.png)
 
 [Daily Scanning](https://x.com/Hirengabani23/status/1953712141329920210)
 
@@ -61,6 +33,67 @@ Few🤌🤌
 ✨Scan daily and train your eyes to find future leaders.
 
 
+## Trading Style
+
+[Stage Analysis](https://x.com/Hirengabani23/status/1945353308232933615)
+
+✨ Stage analysis has proved a game changer for me.
+
+✅Buying flag or bas in Stage-2: High chances of big move ( Stage -2 = Confirmation of institution accumulation)
+
+✅Buy flags or base in Stage -3 or 1: High chances of breakout failures ( Stage 3 or 1 = Anticipation of institution accumulation)
+
+✨This is the reason I always says: Don't buy anything blindly without context.
+
+![img_6.png](img_6.png)
+
+
+[Win Rate](https://x.com/Hirengabani23/status/1946780963327078703)
+
+🌟My trading system in a nutshell
+
+Few🤌🤌
+
+![img_5.png](img_5.png)
+
+[Trade Clean Setup](https://x.com/Hirengabani23/status/1966720165661602068)
+
+💫Smooth-moving and linear stocks chop you up less than choppy or slow-moving stocks.
+
+✅Because if your stop-loss hits in a linear and smooth stock, it doesn't hurt much as you traded one of the best stock out there. But if it hits in a choppy stock, it hurts you both financially and mentally.
+
+✅Be very, very selective. If you don't find a clean setup, don't trade. That's it.
+
+
+[Not Trading Downside Bases](https://x.com/Hirengabani23/status/1965679961693729024)
+
+💫The day I stopped trading downside bases, I began performing well in the market.
+
+✅The goal isn't to buy at a low price, but to buy at the right price.
+
+![img_18.png](img_18.png)
+![img_19.png](img_19.png)
+![img_20.png](img_20.png)
+![img_21.png](img_21.png)
+
+```
+The basic premise of VCP is that supply is absorbed.
+
+Beginners who focuses on patterns, indicators or setups can't have first principle thinking
+
+VCP can't work in Stage-1 or Stage-4 stocks with huge overhead supply.
+```
+```
+The basic criteria to avoid these stocks is 
+1) 50 Ema > 200 Ema 
+2) Price > 200 Ema
+
+It helps me a lot
+```
+
+
+## Recommended Trading Resources
+
 [Book to understand supply and demand](https://x.com/Hirengabani23/status/1956931077982797922)
 
 ➡️If you want to thoroughly understand supply and demand concepts with the utmost clarity.
@@ -69,7 +102,48 @@ There is no better book than this👇
 
 Give it a try and thank me later.
 
-<img width="922" height="1200" alt="image" src="https://github.com/user-attachments/assets/f9103e38-d61f-43bd-82fc-81288ff8dc1d" />
+![img_26.png](img_26.png)
+
+[Manas Arora Tweets](https://x.com/Hirengabani23/status/1958487367192621486)
+
+💫This is getting crazy now. 1000+ comment🫣 Even twitter is not able to load comments now.
+
+I have tried my best to send drive link to most people. Those who didn’t get it, I’m sharing link below 👇
+
+Link: https://drive.google.com/drive/folders/1qw5MZw9Xkm17rU46s_7it9LP-GJc6dkX?usp=sharing
+
+
+[Dhanesh Giani IPO Video](https://x.com/Hirengabani23/status/1974035118420382194)
+
+💫Watching IPO master class of @dhanesh500 with @sourabhsiso19
+
+Clarity🔥
+
+link: https://youtu.be/tt21OVDUcQo?si=bxjUlkSYfwj8jU7q
+
+![img_25.png](img_25.png)
+
+
+## [Hiren Gabani](https://x.com/Hirengabani23)
+
+
+
+[2-4 % Drawdowns](https://x.com/Hirengabani23/status/1946072354851110962)
+
+✅If you start feeling uncomfortable by seeing 2-3% dd in your portfolio, mark my words, you're not gonna make big in this business.
+
+✅2-4% drawdown is part of this business.
+
+✅If you don't want big drawdowns, keep on trading with 0.1-0.2% of portfolio risk, where you do not make big nor lose big. But if you want good portfolio moves, you need to take calculated risk and press on gas in good market condition.
+
+That's the truth.
+
+
+
+
+
+
+
 
 
 [What creates explosive performance?✍️](https://x.com/Hirengabani23/status/1948285324649738321)
@@ -150,13 +224,7 @@ Wait for your pitch.
 
 ![img_13.png](img_13.png)
 
-[Manas Arora Tweets](https://x.com/Hirengabani23/status/1958487367192621486)
 
-💫This is getting crazy now. 1000+ comment🫣 Even twitter is not able to load comments now.
-
-I have tried my best to send drive link to most people. Those who didn’t get it, I’m sharing link below 👇
-
-Link: https://drive.google.com/drive/folders/1qw5MZw9Xkm17rU46s_7it9LP-GJc6dkX?usp=sharing
 
 [Broader Market Sentiment](https://x.com/Hirengabani23/status/1961672345224872216)
 
@@ -179,13 +247,7 @@ Few examples👇
 ![img_17.png](img_17.png)
 
 
-[Trade Clean Setup](https://x.com/Hirengabani23/status/1966720165661602068)
 
-💫Smooth-moving and linear stocks chop you up less than choppy or slow-moving stocks.
-
-✅Because if your stop-loss hits in a linear and smooth stock, it doesn't hurt much as you traded one of the best stock out there. But if it hits in a choppy stock, it hurts you both financially and mentally.
-
-✅Be very, very selective. If you don't find a clean setup, don't trade. That's it.
 
 [Marios Stamatoudis Interview](https://x.com/Hirengabani23/status/1966495803696115891)
 
@@ -196,31 +258,7 @@ breaks it all down super clearly and in tons of detail.
 
 Video link: https://youtu.be/7UfHg8PpDZk?si=1jmtZRajejtHQ5kt
 
-[Not Trading Downside Bases](https://x.com/Hirengabani23/status/1965679961693729024)
 
-💫The day I stopped trading downside bases, I began performing well in the market.
-
-✅The goal isn't to buy at a low price, but to buy at the right price.
-
-![img_18.png](img_18.png)
-![img_19.png](img_19.png)
-![img_20.png](img_20.png)
-![img_21.png](img_21.png)
-
-```
-The basic premise of VCP is that supply is absorbed.
-
-Beginners who focuses on patterns, indicators or setups can't have first principle thinking
-
-VCP can't work in Stage-1 or Stage-4 stocks with huge overhead supply.
-```
-```
-The basic criteria to avoid these stocks is 
-1) 50 Ema > 200 Ema 
-2) Price > 200 Ema
-
-It helps me a lot
-```
 https://x.com/Hirengabani23/status/1974413401637158995
 
 💫Mark Douglas categorized traders into three main psychological groups:
@@ -241,13 +279,5 @@ Cheers🍻
 ![img_23.png](img_23.png)
 ![img_24.png](img_24.png)
 
-https://x.com/Hirengabani23/status/1974035118420382194
 
-💫Watching IPO master class of @dhanesh500 with @sourabhsiso19
-
-Clarity🔥
-
-link: https://youtu.be/tt21OVDUcQo?si=bxjUlkSYfwj8jU7q
-
-![img_25.png](img_25.png)
 
