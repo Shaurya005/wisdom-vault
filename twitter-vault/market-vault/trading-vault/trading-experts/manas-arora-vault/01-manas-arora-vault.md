@@ -92,3 +92,46 @@ These three videos, spaced about three years apart, show just one thing , I keep
 If you're serious about learning, take out time to watch them before placing any real trade.
 #BroTip
 ```
+
+https://x.com/iManasArora/status/2001191793548009762
+
+Forget about what you are already holding. Ask yourself if this was your first buy would you buy here?
+
+That's how I decide to add more
+#BroTip
+Quote
+
+```
+Manas bhai, how you get confirmation that i need to add more ?
+```
+
+https://x.com/iManasArora/status/1302911031258177536
+
+Watch the first 1 hour of 'How I find my super performance stocks' for FREE
+
+A Teacher's day gift from my side.
+
+https://www.youtube.com/watch?v=1tXWsg5bhvQ
+
+Releasing another part for FREE (Studio sound quality)
+
+How I position size & calculate my stop-loss
+
+https://www.youtube.com/watch?v=eagPOn4fwkI\
+
+https://x.com/iManasArora/status/1979046364102205508
+
+Tight stops are not a flex. They are a necessity if you want to touch 1:5 and 1:10 trades.
+
+Let me explain why with easy math.
+
+Look at Indian stocks. Most swing moves happen in the 5% to 50% range. Around 20% is common. A stock usually gives one clean leg up, then pauses or corrects for a few days or even weeks before moving again. 
+Now, if your stop is 8% and you’re aiming for 1:5, you need a straight 40% move without any meaningful pullback. For 1:10, you need an 80% clean move. That almost never happens. Most traders panic on a small intraday dip, let alone sitting through a multi-week correction.
+
+So what is the only practical way left to catch 1:5 or 1:10 without holding through painful corrections? You reduce your stop. From 8 to 6, then to 4, and gradually even lower. The key word here is gradually. Yes, smaller stops get hit more often. That is expected. That is where training comes in. 
+Beginners jumping straight to 2% stops without understanding entries, exits, mindset etc. are setting themselves up for disaster. I did exactly that. I started wide and now comfortable with several small hits because I know one clean trade will pay for them all and put me way ahead.
+
+In short, if you want to trade swings without sitting through long corrections, you don’t really have a choice. Smaller stops are the only way the math works.
+#BroTip
+
+![img_2.png](img_2.png)

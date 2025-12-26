@@ -288,3 +288,99 @@ David Ryan turned $16K into $1.6M in 3 years and won the US Investing Championsh
 Here are the 10 lessons that changed everything.
 
 ![img_26.png](img_26.png)
+
+https://x.com/AnkurPatel59/status/2001243222899560462
+
+How did Oliver Kell post a +941% return and win the U.S. Investing Championship? By following ten simple principles without exception.
+
+This guide breaks them down:
+
+![img_27.png](img_27.png)
+
+https://x.com/AnkurPatel59/status/2001605610480242855
+
+How to become a top 1% trader:
+
+![img_28.png](img_28.png)
+
+https://x.com/AnkurPatel59/status/2000880835369762820
+
+Most traders waste time scanning thousands of stocks with no clear criteria.
+
+Minervini's method that helped him generate a 33,554% return over 5 years is different: a systematic 8-point filter that automatically helps you focus only the highest-probability setups.
+
+This framework shows you exactly what to look for.
+
+![img_29.png](img_29.png)
+
+https://x.com/AnkurPatel59/status/2000578090049917069
+
+The secret to growing a small account?
+
+Speed and capital efficiency. Focus on high ADR momentum stocks, execute A+ setups only, cut losers ruthlessly at 2-4%, and scale position size as your account grows.
+
+This one-pager breaks down the five essential pillars:
+
+![img_30.png](img_30.png)
+
+https://x.com/AnkurPatel59/status/2000518447348727981
+
+David Ryan won the U.S. Investing Championship three times not by luck, but by following a disciplined system he learned from the best.
+
+This one-pager breaks down his exact five-rule framework: how to find winning stocks, follow institutional money, size positions based on conviction, and exit before emotions take over.
+
+Proven rules that consistently beat the market.
+
+![img_31.png](img_31.png)
+
+https://x.com/AnkurPatel59/status/1999077773508534590
+
+Momentum trading simplified — Qullamaggie style.
+
+![img_32.png](img_32.png)
+
+https://x.com/AnkurPatel59/status/1998730520214339821
+
+6 Entry Types Every Swing Trader Should Know
+
+Entries are one of the first things traders learn because they decide when you get involved in a trade. A good setup can still fail if the entry is poor, and a simple setup can work beautifully if the timing is right.
+
+In this writeup, here are six practical entry types every swing trader should know, along with when and why they work.
+
+1. PDH Entry
+   Price moves above the Previous Day’s High. It shows strength continuing from the last session.
+
+![img_33.png](img_33.png)
+
+2. Strong Start Entry
+   A stock opens well and shows clear strength and high volumes in the first few minutes. After the initial push, a break of any range formation could be used as an entry . Useful in leading stocks.
+
+![img_34.png](img_34.png)
+
+3. Pivot Break Entry
+   Price breaks a level that has been rejected multiple times. This suggests sellers at that level are finally out of the way. A clean breakout candle usually confirms it.
+
+![img_35.png](img_35.png)
+
+4. Anticipation Entry
+   Entering slightly before a breakout, usually inside a tight consolidation on a day where price has gone pretty tight, at EOD. The structure should already be strong so the breakout has a higher chance of happening. Gives better risk–reward.
+
+![img_36.png](img_36.png)
+
+5. Pullback Entry
+
+Buying a stock that’s already leading when it dips to an EMA, trendline, or support zone. The pullback should be controlled, not aggressive.
+
+![img_37.png](img_37.png)
+
+6. Inside Day Entry
+
+Price stays within the previous day’s range, showing contraction. When it breaks the inside day high the next day, it often leads to a clean continuation move.
+
+![img_38.png](img_38.png)
+
+https://x.com/AnkurPatel59/status/2001967998253367737
+
+Why are the 20 and 50 day moving averages special?
+
+![img_39.png](img_39.png)

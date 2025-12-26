@@ -568,3 +568,125 @@ If you're nothing without trading, you haven't understood trading at all:
 
 ![img_11.png](img_11.png)
 
+[Common Biases](https://x.com/TheOneLanceB/status/2001714080273268785)
+
+One of my favorite common biases and part of why I love the psychology of money.
+
+People greatly overweight costs that are:
+explicit | certain | now.
+
+People greatly underweight costs that are:
+implicit | uncertain | later
+
+```
+The other question is to ask: What are the hidden costs of not paying for something?
+
+No gym membership/exercise -> chronic health issues and doctor/drug costs later on
+
+Don't buy books/courses/education -> miss out on all the upside more skills you would have gotten
+```
+
+### [Size in A+ Setup](https://x.com/BrkoutGeek/status/2001646434974875983)
+
+"Your A+ Setup with A+ Entry should have A+ Size"
+
+@TheOneLanceB
+somethimes a single line change the way you think about trading and this is that line for me.
+
+Thak you Buddy.
+
+### [IPO Trading](https://x.com/HiteshUnadkat89/status/1997280204579127610)
+
+No #IPO Allotment?
+The Real Game Begins After Listing!
+
+Most people think the excitement of an #IPO ends on listing day…
+
+but the Real #strategy actually starts after the listing.
+Even without an allotment, you can still capture Good moves —
+all you need is the right stock, the right timing, and the right approach.
+
+![img_33.png](img_33.png)
+
+It’s the post-listing price action that decides which IPO can turn into a future #Multibagger.
+
+I’ve created a complete #PDF with 25 IPO-based setups —
+including #Entry rules, #StopLoss placement, #Profit-booking methods,
+and exactly how to Trail your #Winners like a pro.
+
+Link Is Here :
+https://drive.google.com/file/d/1JeBLmfONQEzUbfw8Jc9R7iNIxTtTbpR8/view?usp=drive_link
+
+If you Find it valuable, don’t forget to #LIKE, #SHARE & #FOLLOW —
+your support keeps the knowledge flowing!
+
+![img_32.png](img_32.png) 
+
+
+### [Hiren's analysis of base quality](https://x.com/Charts_Maze/status/2000532549286945192)
+
+How to analyse Base Quality?
+
+Most traders mistake every base with tightness on the right as a feasible setup❌
+
+A clip from @Hirengabani23 podcast, on the kind of price action to look in a base before tightness✅
+
+1 year to this podcast, comment for more from @Hirengabani23 👇
+
+Link to full podcast
+
+https://www.youtube.com/watch?v=au-63eeA8IA
+
+### [Book for Position Sizing](https://x.com/sourabhsiso19/status/2002282240093663622)
+
+Simple Guide to Position Sizing for Trading Success  By Van k. Tharp
+A thread 🧵
+
+![img_34.png](img_34.png)
+
+### [Chartians fav podcast](https://x.com/chartians/status/2000885957239955632)
+
+Personal Favourite podcast so far !
+
+@prvkhvr taking the lead to change the Podcast scene in 🇮🇳 🫡❤️
+
+![img_35.png](img_35.png)
+
+
+### [Trade Journaling](https://x.com/Charts_Maze/status/1998726568869507416)
+
+What’s the Trader’s version of repairing nets?
+
+Trade Journalling✅
+
+Stop chasing setups and save your financial & mental capital.
+
+Focus on sharpening your systems instead💯
+
+Try your first journal here:
+https://tradejournal.chartsmaze.com/add-trade-book
+
+![img_36.png](img_36.png)
+
+Tutorial on how to journal👇
+
+https://www.youtube.com/watch?v=re2zTJyJqDg
+
+### [How to grow small account](https://x.com/BasedTrader_/status/1995856864916242604)
+
+High ADR + High RS + Liquidity Rush + MA Undercut + VCP 3T + Double/Triple Cheat Entry is the recipe for growing Small Accounts.
+
+You don't need anything else!
+
+
+### [Technical Guide to understanding Volumes](https://x.com/Charts_Maze/status/1995006731026620909)
+
+Came up with a blog after long time🤠..
+
+A Technical Guide to understanding Volumes📊
+
+Do checkout👇
+
+https://chartsmaze.substack.com/p/a-technical-guide-to-understanding
+
+

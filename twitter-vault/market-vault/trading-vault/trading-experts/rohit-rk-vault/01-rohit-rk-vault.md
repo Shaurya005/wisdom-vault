@@ -755,3 +755,8 @@ This is a lesson through my experience, so dont ever lose hope & you can make FY
 
 If you liked my perspective, comment & Like to let me know if you are able to resonate
 
+https://x.com/VVVStockAnalyst/status/1996597395942252547
+
+You don't need to buy the bottoms & sell the tops to make money.
+
+You just need to be in the "Meat of the Move"

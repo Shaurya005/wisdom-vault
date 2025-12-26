@@ -239,3 +239,20 @@ It's like playing chess against a monkey in a hurricane.
 
 ![img_1.png](img_1.png)
 
+[Thoughts about time & money](https://x.com/finallynitin/status/1995138875900281158)
+
+Some of my random thoughts about time & money:
+
+1. We value what we lack.
+2. Young people value money; as they get older, they start valuing time more.
+3. You know your bank balance, but not how much time you've got left.
+4. Time is a depreciating asset. Once this moment passes, it joins everything else that no longer exists.
+5. People spend time as carelessly as pocket change.
+6. You can create money from money, but not time from time.
+7. The purpose of money is to reclaim the time we have in our lives.
+8. The wealthy people buy time with money; the poor earn money with their time.
+9. Beyond a limit, happiness ceases to increase proportionately with the money that we have.
+10. "Paisa chahe khatam ho na ho, time ek din zaroor khatam ho jayega".
+
+![img_2.png](img_2.png)
+

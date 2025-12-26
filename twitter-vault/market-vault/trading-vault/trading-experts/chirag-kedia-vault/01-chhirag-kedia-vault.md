@@ -17,3 +17,9 @@ Thank you, and same to you, @jfsrev
 ! Both you and @BrianLeeTrades are among the most sensible voices on fintwit, and I truly look forward to your work.
 
 Thanks and happy Teachers' Day once again! ❤️
+
+https://x.com/swing_ka_sultan/status/2001854214792974377
+
+“Nothing in life is to be feared; it is only to be understood. Now is the time to understand more, so that we may fear less.”
+
+— Marie Curie

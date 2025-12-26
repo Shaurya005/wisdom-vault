@@ -61,3 +61,21 @@ https://youtu.be/oWWR8ZfnSxY?si=DngoiINAsRWYGu95
 It’s from the archives and is purely discussing mindset of a beginner trader vs a performer in the markets.
 
 Hope you like it!
+
+https://x.com/AmeetRai/status/2001604919610970480
+
+Wrapping up the year.
+
+This year was about doing less but doing it better — far fewer trades & deeper focus on true market leadership through every market cycle.
+
+When the primary trend is up, there’s no need to overcomplicate. Stay focused, stay patient and don’t chase every twist and turn.
+
+It’s a good time to step away, reflect on what worked (and what didn’t), and recharge fully before heading into the new year.
+
+Mental capital is just as important as actual capital.
+
+To everyone who stayed consistent, disciplined and committed to improving this year — congrats!!
+
+Best of luck as you close out December, and I’ll see you in January — fresh and ready to attack again.
+
+![img.png](img.png)

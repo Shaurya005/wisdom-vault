@@ -137,3 +137,7 @@ Gap filling is a two-step process
 Merely closing is the first step. the next is to have a strong follow-through which IOLCP is doing now
 
 But that Gap filled 3 times. Are we taking it that every BO attempt makes the resistance weaker?
+
+https://x.com/thechartist26/status/2000752173765026182
+
+![img_9.png](img_9.png)

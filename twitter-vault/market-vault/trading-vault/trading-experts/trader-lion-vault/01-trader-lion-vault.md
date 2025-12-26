@@ -41,3 +41,9 @@ https://x.com/TraderLion_/status/1973736592885030974
 William O'Neil's studies show finding winning stocks is easier when you filter by group strength first.
 
 ![img_6.png](img_6.png)
+
+https://x.com/TraderLion/status/2001767246348140626
+
+If you are not aggressive, you are not going to make money, and if you are not defensive, you are not going to keep money.
+
+– Ray Dalio

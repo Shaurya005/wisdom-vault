@@ -86,3 +86,30 @@ Smooth upmove and then some consolidation, OR long base, or some gap filling.
 
 Out of these 12-15 setups - I come down to 7/8 and then buy the ones in the order of the breakout
 
+https://x.com/thechartist26/status/1998582004963750106
+
+One day bounce doesn’t change anything unless confirmed by a strong follow through
+
+This is a typical bounce after an oversold reading
+
+The main thing I am looking for, is the stock setups that meet my criteria, and unless I see a lot of of them, breaking out and following through, I won’t be aggressive. In this process, I have practised a lot over the years to control my FOMO, so there is no FOMO as such.
+
+In order to make money, I need a healthy market and not just a market where the higher probability itself is dicey
+
+
+https://x.com/thechartist26/status/1996213407171985593
+
+It depends on a lot of factors
+
+Number one factor is if the range is pretty long of over 14 to 15 trading days without hitting my stop loss, and in this case, I try to trim my position by half if I have another opportunity
+
+If I don’t have any other opportunity, and the existing name is not troubling me at all, but not moving to the upside as well. I tend to stick with it.
+
+Now all this depends on market condition as well. If the market is healthy and the trade is not moving up for as I said 14 to 15 days, I generally move on to the next name and in some cases, I trim half even before 14 days.
+
+So to summarise, I have a time stop being a swing trader
+
+```
+@thechartist26
+if the stock remains range bound without hitting the SL, how you handle it?
+```

@@ -280,4 +280,55 @@ Cheers🍻
 ![img_24.png](img_24.png)
 
 
+https://x.com/Hirengabani23/status/2001513226006360183
+
+✅Look at the underlying condition.
+
+💫Let me repeat: It's not just about setups. Trading is way beyond setups.
+
+✅Knowing when to sit out and when to trade aggressively is key to achieving super performance.
+
+![img_27.png](img_27.png)
+
+https://x.com/Hirengabani23/status/2000802277603660023
+
+💫I scan the markets every day, not just to find setups, but to understand where the action is: what’s working, what isn’t, what’s holding strong, and which sectors are showing strength. I've been doing this consistently every single day since 2021.
+
+✅This has immensely helped me decide my stance in the market.
+
+https://x.com/Hirengabani23/status/2000531459850084652
+
+💫 How home run trades drive long-term profitability and success in trading.
+
+Must read✍️
+
+<div class="grid" markdown>
+
+![img_28.png](img_28.png)![img_29.png](img_29.png)
+![img_30.png](img_30.png)![img_31.png](img_31.png)
+
+</div>
+
+https://x.com/Hirengabani23/status/1998619061987520924
+
+💫If you truly want to become more patient and disciplined in trading, stop taking tiny 0.05–0.1% risk trades while telling yourself, “I’m just testing the water.”
+
+✅You’re in the market to make money, not to feel excited or to stay busy.
+
+✅Trading every day with small risks trains you to become impatient and FOMO-driven, which is the exact opposite of what builds long-term success.
+
+✅I have been there, done that.
+
+
+https://x.com/Hirengabani23/status/1996172567741141249
+
+💫Most traders and investors are terrible at “Risk management.”
+
+✅They make lots of money in a bull market and eventually give it back everything or even more in a bear market.
+
+✅Manage your risk and be disciplined in this business.
+
+![img_32.png](img_32.png)
+
+
 

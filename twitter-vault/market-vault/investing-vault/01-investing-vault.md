@@ -214,3 +214,43 @@ From the book “Deep Work”
 "Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young. The greatest thing in life is to keep your mind young." Henry Ford
 
 Your favourite quote?
+
+
+https://x.com/moneyworks4u_fa/status/2001583090192556454
+
+My family SIP plan
+
+1/3 in a Smallcap fund
+1/3 in an LC/MC heavy multi-factor fund
+16% for kids
+6% in a conservative fund (substitute for FD/PPF/EPF)
+13% in global funds with dynamic multi-country, multi-theme mandates.
+
+For the core funds, the bet is on the fund managers.
+For global funds idea is to diversify and get exposure to themes like innovation that don't have adequate representation in Indian markets. Never been a fan of gold, never will be.
+
+Please don't treat this as a recommendation.
+This may not be 'the best SIP plan', but it works well for my situation and my mindset.
+
+![img_3.png](img_3.png)
+
+https://x.com/manishlalwani9/status/1999769521356493250
+
+Thinking fast and slow is one of my fav. Books!
+Helped me a lot to recognise and hopefully avoid these bias.
+
+```
+Investment Biases (1)
+
+Investing is as much about understanding businesses, analysing numbers/valuations, as it is about mastering our psychological behaviour & biases.
+
+Sharing a few common investment biases, which are very common, do check them out, and share which one dominates your decision.
+
+#biases #investmentbiases #pyschology #investmentframework
+```
+
+https://x.com/ishmohit1/status/2001559789332238492
+
+Rajasekhar Iyer on market cycles
+
+![img_4.png](img_4.png)

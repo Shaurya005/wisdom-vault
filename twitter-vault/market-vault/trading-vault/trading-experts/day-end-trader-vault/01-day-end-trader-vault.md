@@ -167,6 +167,20 @@ A great storyteller will make the Thirsty Crow sound wonderful, while an average
 Saw this video. It is amazing. Can you pls share how your system performed during Jan-Mar’25? Just want to know number of times it gave entry and if there was DD during those entries (if any). Thanks 🙏🏻
 ```
 
+https://x.com/dayendtrader/status/1995806563412406409
+
+No rocket science.
+
+Buy at the point where there is lowest possible risk.
+This market is more ideal for pullback buying.
+
+In fact my recent topic of study is exactly this. Pullbacks are better entry points in any market compared to breakouts.
+
+I’m risking style drift while doing this as I am predominantly a breakout trader. But the system needs to evolve I guess.
+
+```
+Can you please share psychology behind those type of entry in Asian paint and intellect
+```
 
 
 
