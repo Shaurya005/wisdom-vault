@@ -149,3 +149,19 @@ Newsletter No 86 is uploaded now
 Classic by Stanley Druckenmiller
 
 https://open.substack.com/pub/aryadeniz/p/stanley-druckenmillers-lost-tree?r=tv3fh&utm_medium=ios
+
+https://x.com/thechartist26/status/2004159947941216708
+
+This one interview of @SSalim0002 with @RichardMoglen stays on the top of my revision list always
+
+https://youtube.com/watch?v=NR4S_entRDI&t=657s
+
+Everything you need minus all what you don't need
+
+![img_12.png](img_12.png)
+
+https://x.com/thechartist26/status/2003366125212745937
+
+A good book to understand volume
+
+![img_15.png](img_15.png)

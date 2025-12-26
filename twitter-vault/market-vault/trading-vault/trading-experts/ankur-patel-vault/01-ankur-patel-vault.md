@@ -384,3 +384,33 @@ https://x.com/AnkurPatel59/status/2001967998253367737
 Why are the 20 and 50 day moving averages special?
 
 ![img_39.png](img_39.png)
+
+https://x.com/AnkurPatel59/status/2003419148215549989
+
+Lesson from 24 Years of Momentum Trading: The Stockbee Blueprint
+
+![img_40.png](img_40.png)
+
+https://x.com/AnkurPatel59/status/2002980528035971532
+
+Market Conditions Simplified
+
+If you want to understand the market in the simplest way, focus on just four things.
+
+First, your watchlist.
+In a good and tradable market, building a strong watchlist becomes easy. If you are struggling to find good stocks, that itself is feedback. A bad watchlist often means a bad market.
+
+Second, feedback from the watchlist.
+Do not look at one or two stocks. Look at many. Are a good number of stocks from your watchlist moving up? That is what you want to see. Strength should be visible across the list, not isolated.
+
+Third, feedback from your open trades.
+Once you start buying, observe what happens next. Are trades moving in your favor with ease? Or are they struggling right after entry? The market always responds quickly. You just need to listen.
+
+Fourth, follow through.
+If your watchlist is strong, feedback is positive, and open trades are working, that is your green signal. You can add to winners, open new trades, or increase size. Aggression comes after confirmation, not before.
+
+This is the simplest market guide.
+Watchlist. Feedback. Open trades. Follow through.
+When all four align, you do not predict. You participate.
+
+![img_41.png](img_41.png)

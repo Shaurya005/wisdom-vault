@@ -177,3 +177,68 @@ In tech, aggression is the only moat; the biggest threat to tech is tech
 
 Run fast and break things is the only thing that big tech needs to do; if you slow down, you're left behind!
 
+
+https://x.com/dhanesh500/status/2003101859851219445
+
+when the first 22 years of your life the only goal was to get good marks and a degree
+
+and now you’re 23 having no idea what to do next…
+
+Peak Crisis.
+
+https://x.com/mainbhiengineer/status/2002438904604250163
+
+Late marriage is cool because In early 30s you think that who will take responsibility of a family, kids and all, let's be with friends and enjoy the freedom. Friends are for forever, So you keep delaying the marriage.
+
+But In early 40s when you see all of those friends are married now, have a beautiful family and kids, they're busy attending kids school's PTM instead of joining a party with you over weekend, 
+you will realise that you've missed the bus and either you choose the wrong partner or people with broken marriage in FOMO or you will have to stay with loneliness.
+
+https://x.com/justinskycak/status/2003861245901127901
+
+That skill of ignoring your emotions and sticking to the plan is discipline. Here's how you can cultivate discipline:
+
+![img_4.png](img_4.png)
+
+```
+One of the most valuable skills you can develop is the ability to ignore your emotions and stick with the plan.
+```
+```
+Most people are at the mercy of their emotions which leads to them never achieving much.
+
+Emotions come and go like waves.
+
+You just have to withstand the lows --you’re not going to be in that “low” forever.
+
+Once you do that, you’re no longer at the mercy of your emotions, making you disciplined.
+```
+
+https://x.com/MINHxDYNASTY/status/2003262523592802505
+
+just finished listening to the full 4h34m lex x pavel durov (telegram) podcast
+
+if you have some time, it's a great listen
+
+here were the main takeaways for me:
+
+• health is wealth
+• be active everyday
+• freedom is more important than money
+• in the past, we wanted to be the same as everyone to not starve, in this life, be different, master a niche, fight against human nature
+• dont be average
+• use your phone less (do not disturb)
+• dedicate a lot of time to sleep
+• define what YOU want to dedicate time and energy to, dont be reactive
+• most information we consume is irrelevant to use
+• taking action is the most important thing
+• learn to stay calm in extreme situations
+• fast (intermittent or 24 hours)
+• use pain as signals to see what problems to fix
+• ask yourself what are people's incentives
+• creating systems > managing people
+• in a business, stay lean
+
+and this was just in the first 60 minutes, highly recommend the listen
+
+im betting big on telegram
+
+![img_5.png](img_5.png)

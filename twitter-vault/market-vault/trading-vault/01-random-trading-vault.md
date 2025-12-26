@@ -94,5 +94,83 @@ https://x.com/Stockeens/status/1961674016017846727
 
 ![img_20.png](img_20.png)
 
+https://x.com/ohiain/status/2002823890029191229
+
+You have to be intentional about your social media usage because 99% of what’s on X is noise and doesn't move the needle.
+
+and if you’re not careful, X will slowly sabotage your trading without you even realizing it.
+
+Social media is one of the most underrated negative inputs for traders.
+
+constant comparison, thousands of ideas every week, conflicting opinions, P&L screenshots, and unrealistic results all competing for your attention.
+
+speaking from experience, if you consume all of it, your process gets diluted very quickly.
+
+Your conviction weakens.
+Your patience slowly turns into impatience.
+... and you start second guessing your own trades, because someone else’s opinion online.
+
+For my process, X has a very specific purpose.
+
+I use it for scanning ideas, staying aware of themes, and learning from a small group of people who consistently post real value. I don’t scroll for entertainment, and I definitely don’t hunt for new follows.
+
+If anything, I let people come to me because my feed is curated around my process, not what’s popular that day. That distinction matters more than most people realize.
+
+I’m extremely selective with who I follow and whose post notifications I turn on. I’m not interested in Webull screenshots or daily P&L flexing. I want thoughtful commentary, process value education, different perspectives, and people who have clearly paid market tuition.
+
+I’d rather learn from ten high quality voices than drown in a thousand low effort ones.
+
+This is an underrated tool that almost everyone uses incorrectly. Your feed becomes your subconscious in a sense, because you repeatedly expose yourself to will influence how you think, how you act, and how you trade.
+
+if your timeline is full of "the next trend," fear, and noise, don’t be surprised when your execution feels rushed and emotional.
+
+most days, after I post, I’m off the app unless I’m actively scanning or being intentional with my time here. I’m not endlessly scrolling because it took me 3 years to realize that attention is capital, and I treat it that way.
+
+If you’re looking for solid value follows, feel free to go through my following list.
+
+I’ve learned a ton from the people below, and I’m grateful for the time and energy they put into sharing real education with the community.
+
+There are many other traders I look at, but these are just a few voices I look at consistently because they offer different perspectives and think beyond just charts:
+
+@RealSimpleAriel
+@RichardMoglen
+@stamatoudism
+@ConnorJBates_
+@ShakePryzby1
+@AsymTrading
+@NickDrendel
+@investingluc
+@epictrades1
+@SRxTrades
+@ChartsJavi
+@FranVezz
+@jfsrev
+
+
+At the end of the day, be intentional with your time because this is about protecting your mental bandwidth.
+
+be intentional with your scrolls and be ruthless with your filters. X can either sharpen your edge or erode it (edge erosion is real, don't hear it talked about enough).
+
+The difference is how deliberately you use it.
+
+https://x.com/SureshKBN/status/2003659401010499702
+
+Always delivery volume matters.
+
+Most important is the follow up price action.
+
+Don’t jump the gun on the first strike whatever the fundamentals in this market phase.
+
+Wait for a pullback and a clean follow through.
+
+Very few moves survive without it.
+
+stick to stocks which got sector tailwinds..
+
+```
+Hi Sir. Trying to learn delivery volume. How should take when Delivery volume is higher but delivery % is less? Ex, Quadfuture. 
+Could be speculative and should be careful? I checked AI's and learnt few details, but would like to hear from experienced also.
+```
+
 
 

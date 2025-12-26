@@ -123,6 +123,17 @@ link: https://youtu.be/tt21OVDUcQo?si=bxjUlkSYfwj8jU7q
 
 ![img_25.png](img_25.png)
 
+https://x.com/Hirengabani23/status/2003776532297515175
+
+💫One of the best podcast on trading mindset.
+
+"The Emotional Alchemy of Trading: Tom Canfield’s Path to Mastery"
+
+Link: https://youtu.be/wdUwMlWzmY4?si=hu_NB0F7rV1ZoiRt
+
+![img_33.png](img_33.png)
+
+
 
 ## [Hiren Gabani](https://x.com/Hirengabani23)
 
@@ -137,11 +148,6 @@ link: https://youtu.be/tt21OVDUcQo?si=bxjUlkSYfwj8jU7q
 ✅If you don't want big drawdowns, keep on trading with 0.1-0.2% of portfolio risk, where you do not make big nor lose big. But if you want good portfolio moves, you need to take calculated risk and press on gas in good market condition.
 
 That's the truth.
-
-
-
-
-
 
 
 
@@ -329,6 +335,3 @@ https://x.com/Hirengabani23/status/1996172567741141249
 ✅Manage your risk and be disciplined in this business.
 
 ![img_32.png](img_32.png)
-
-
-

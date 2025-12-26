@@ -113,3 +113,46 @@ So to summarise, I have a time stop being a swing trader
 @thechartist26
 if the stock remains range bound without hitting the SL, how you handle it?
 ```
+
+https://x.com/thechartist26/status/2003429775457796342
+
+If the whole base is less than 6-7% deep - I am ok with it
+
+```
+If you exclude last 3,4 days, the consolidation quality or SJS doesn’t seem clean to me..am I wrong here? Asking for learning purpose
+```
+![img_14.png](img_14.png)
+
+
+https://x.com/thechartist26/status/2004163541377699900
+
+Chapter 18, How to make money in Stocks by William O Neil
+
+```
+Investment without SL ??? Doesn't quite sound like your trading style. Please clarify sir
+```
+
+Below  PE 25 - I will start picking this Microcap 250 in my portfolio
+
+Below PE 21 - I will be a blind thief here.
+
+I am invested right from the start till now
+
+![img_13.png](img_13.png)
+
+https://x.com/thechartist26/status/2003614210887123257
+
+Two or three times you will give back all the gains you made and will realise the pain of winning back. Nothing else can teach the importance of process.
+
+No book can ever shape up the psychology than to see your stocks fluctuating. Automatically with experience the market teaches what matters. You will be over FOMO by making losses & by giving everything back what you made
+
+```
+Many setups fly without coiling that gives me fomo and when I take entry in anticipation it trfgers SL. 
+What to do?
+```
+Free advice:
+
+Don't force the trades. Let the setup come to you.
+
+You will see a lot of setups. No point going in for low-grade buys
+

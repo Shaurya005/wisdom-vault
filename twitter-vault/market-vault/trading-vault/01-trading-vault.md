@@ -1,5 +1,13 @@
 # **Trading Vault**
 
+## Scanning Criteria
+
+
+## Trading Style
+
+
+## Recommended Trading Resources
+
 ## [Shubham Gupta aka Investorniti](https://x.com/investorniti)
 [IPO Trading](https://x.com/investorniti/status/1937081329822093519)
 
@@ -312,11 +320,32 @@ Managing Winning Trades: How to Let Profits Run Without Giving Them Back 👇
 ![img_27.png](img_27.png)
 
 ## [Sakatas Homma](https://x.com/SakatasHomma)
+
 [Sakatas Homma Articles](https://x.com/SakatasHomma/status/1947722876779483576)
 
 Long indepth article on http://sakatas.substack.com
 
 Join 7888 peak traders now, for FREE
+
+https://x.com/SakatasHomma/status/1949776300832604357
+
+The greatest AHA moment of every losing trader who finally turned the corner?
+
+It wasn’t better entries.
+It wasn’t more discipline.
+It was this:
+“I was so obsessed with risk management... I ended up chasing low RS setups. The chronic under-performers, thinking they were 'safe'.”
+
+In trying to avoid pain, they chose mediocrity.
+
+As Merton said:
+“The more you try to avoid suffering, the more you suffer, because smaller and more insignificant things begin to torture you in proportion to your fear of being hurt.”
+
+Managing Risk in Bad Market Environments, or in Laggards and expecting to make money is the same as expecting to build a fit body by only doing Bicep Curls.
+
+here is the real heirarchy:
+
+![img_37.png](img_37.png)
 
 ## [Richard Moglen](https://x.com/RichardMoglen)
 [2025 TraderLion Conference](https://x.com/RichardMoglen/status/1947032889599943148)
@@ -688,5 +717,54 @@ A Technical Guide to understanding Volumes📊
 Do checkout👇
 
 https://chartsmaze.substack.com/p/a-technical-guide-to-understanding
+
+
+## [Hitesh Unadkat](https://x.com/HiteshUnadkat89)
+
+https://x.com/HiteshUnadkat89/status/2004137546234974463
+
+Price moves fast and reacts to emotion,
+
+But Anchored VWAP reveals the true cost basis
+showing where real buyers and sellers are positioned,
+and where price is most likely to react next.
+
+-Brain Shannon
+
+![img_42.png](img_42.png)
+
+https://x.com/HiteshUnadkat89/status/2003019737316684159
+
+Risk is the only thing you can control — so control it ruthlessly.
+
+Larry Hite
+
+![img_38.png](img_38.png)
+
+https://x.com/HiteshUnadkat89/status/2000452704653750583
+
+The best stocks are the strongest stocks — not the cheapest.
+
+William o'Neil
+
+![img_39.png](img_39.png)
+
+https://x.com/HiteshUnadkat89/status/1999018314211938359
+
+“Tight risk and clean pivots don’t just protect you
+they position you for the biggest moves of your career.”
+
+Oliver Kell
+
+![img_40.png](img_40.png)
+
+https://x.com/HiteshUnadkat89/status/1997600288681984462
+
+“Price shows you WHERE the market is going…
+but volume shows you WHY.”
+
+Anna Coulling
+
+![img_41.png](img_41.png)
 
 

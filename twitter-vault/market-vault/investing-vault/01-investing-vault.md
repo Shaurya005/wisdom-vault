@@ -254,3 +254,30 @@ https://x.com/ishmohit1/status/2001559789332238492
 Rajasekhar Iyer on market cycles
 
 ![img_4.png](img_4.png)
+
+https://x.com/LuckyInvest_ARK/status/2003168802436255858
+
+Rocking thought process and analysis
+@vikaskhemani
+
+https://www.youtube.com/watch?v=aLnKda2hqkU
+
+```
+"The real opportunity to create alpha is outside the index and there is no strong case for building real wealth through passive index funds." says 
+@vikaskhemani
+ 
+
+"Every time a country transforms, the main opportunity is outside the index . if you only invest in index funds, you run the risk of missing those opportunities."
+
+Agree ?
+```
+
+https://x.com/priceactionnerd/status/2004401210057806200
+
+Glad I picked up this habit early
+
+Great interview of Sankaran Naren by @_soniashenoy
+
+https://youtube.com/watch?v=ee_wPgjMRjQ
+
+![img_5.png](img_5.png) ![img_6.png](img_6.png)
